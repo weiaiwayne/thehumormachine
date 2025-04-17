@@ -1,31 +1,27 @@
-**(Opening music: A jaunty, slightly off-key rendition of "God Bless America" played on a kazoo)**
+**(Intro music fades, RedStateRoast steps center stage, adjusts the microphone with a practiced air.)**
 
-**(RedStateRoast strides onto the stage, wearing a "Make America Great Again…Again" ballcap and a bolo tie featuring a tiny, bedazzled American flag. He adjusts the microphone with a theatrical sigh.)**
+Good evening, patriots, and welcome back to “Unfiltered Truthiness,” the only show brave enough to say what you’re thinking…after a stiff drink and a thorough review of the latest executive orders.
 
-Alright, alright, settle down, snowflakes. Welcome back to "Truth Hurts," the only show brave enough to say what you’re all thinking… or at least what you *should* be thinking.
+Speaking of executive orders, did you see the one this week? Mandatory American flag Speedos for all Pride parades. Apparently, the President feels we need to "Make Pride Patriotic Again." I, for one, am all for it. Nothing screams tolerance like forcing people to express it in swimwear they probably wouldn't be caught dead in otherwise. The ACLU is already filing suit, naturally. I say, let them. It's a great opportunity to see some lawyers in Speedos. Win-win.
 
-Another week, another avalanche of ridiculousness. Where do we even begin? Oh, I know! Remember when the Left swore up and down that Trump was going to start World War III? Turns out, he just needed a second term to negotiate a killer deal on… wait for it… Venezuelan oil. Yeah, that’s right. Turns out the best way to stick it to Putin is to buy oil from a guy who makes Putin look like a kindergarten teacher. Genius! I mean, who needs the Keystone pipeline when you can just cut a check to Maduro? It’s like laundering money, but with crude oil and a side of international embarrassment.
+And how about this climate change nonsense? The scientists are still whining, even after President Trump personally negotiated a new climate accord with the sun. Terms are confidential, but I hear it involves a significant reduction in solar flares in exchange for a lifetime supply of tanning lotion. Seems reasonable to me. Besides, what's a little global warming when you've got a great tan?
 
-And speaking of embarrassment, did you see the latest from the Department of Education? They're proposing a new curriculum: "Woke-Free History: The Real Story of America, Minus All the Bad Stuff." Apparently, slavery was just a "complex labor situation" and the Civil Rights Movement was a "minor disagreement." I’m kidding… mostly. The official statement is “Nuanced.” Because apparently, nuance is what we need when discussing the systematic oppression of millions. Honestly, I’m waiting for the companion course: "Advanced Gaslighting for Young Patriots."
+The media, of course, is having a meltdown. CNN is reporting that the sun is “uncooperative” and “potentially colluding” with the administration. MSNBC is claiming the tanning lotion is a Russian asset. Honestly, you can’t make this stuff up. Well, I can, but they’re already doing it.
 
-But hey, at least the economy is… well, it's *something*. Inflation is still higher than Hunter Biden on a Tuesday, but the President assures us it’s “transitory.” Just like his promises to build that wall, right? Remember that wall? Now we’re building a virtual wall in the metaverse. Apparently, illegal immigrants are now crossing the border via Oculus Rift. Progress, folks!
+And let's talk about the economy. Booming! Absolutely booming! GDP is up, unemployment is down, and inflation is…well, let’s just say it’s “experiencing a period of dynamic growth.” Okay, fine, inflation is through the roof. But at least it’s *American* inflation. We’re paying more for everything, but we’re doing it with pride. And besides, who needs to buy anything when you can just look at pictures of the President’s golf course? It’s basically economic porn.
 
-And let’s not forget about the cultural landscape. Hollywood is still churning out woke garbage faster than you can say “cancel culture.” The latest superhero movie features a non-binary, pansexual, vegan superhero who fights climate change with the power of… interpretive dance. I’m not making this up. I saw the trailer. I think. I might have hallucinated it after accidentally watching CNN for five minutes.
+The Democrats, predictably, are blaming everything on Trump. They say his tax cuts for the rich are responsible for the rising cost of…everything. They say he’s destroying the environment. They say he’s undermining democracy. Honestly, you’d think they’d be used to it by now. It's been six years.
 
-But fear not, patriots! There is a beacon of hope shining in the darkness: the return of the McRib. That’s right, folks! The pinnacle of culinary artistry is back on the menu. Finally, something to unite this divided nation. Except, of course, the McRib is now made with lab-grown meat and costs $27.99. So much for affordable comfort food.
+But here’s the kicker. They’re still trying to impeach him. Again. This time, it’s for “crimes against good taste” after he replaced the Mona Lisa with a portrait of himself eating a cheeseburger. I mean, it’s tacky, sure. But is it impeachable? I’m not a lawyer, but I’m pretty sure the Constitution doesn’t say anything about “aesthetic offenses.” Although, maybe it should. Some of the fashion choices on Capitol Hill are definitely impeachable.
 
-And the Democrats? Oh, they're still doing... whatever it is they do. They've rebranded again, this time as the "Party of Common Sense." I know, I choked on my Diet Coke, too. Last I checked, their common sense involved defunding the police and giving free college to everyone who can fog a mirror. But hey, maybe this time they’ll actually figure out how to win an election without cheating… I mean, without “fortifying the vote.”
+Speaking of Capitol Hill, remember that whole “Defund the Police” movement? Yeah, that’s going great. Crime is down… in gated communities. Everywhere else, it’s like a real-life version of "The Purge," only instead of one night, it’s every Tuesday. But hey, at least we’re having an important conversation about social justice…while we’re barricading our doors.
 
-Speaking of elections, the midterms are coming up fast. Get ready for another round of accusations, conspiracy theories, and recounts that drag on longer than a Lizzo concert. I'm already practicing my "Stop the Steal… Again!" chants.
+And the universities? Oh, don’t even get me started. They’re still churning out snowflakes faster than Hallmark can produce Christmas movies. Apparently, trigger warnings are now mandatory for everything, including the Pledge of Allegiance. You know, because saying “under God” might offend someone who doesn’t believe in God. Or someone who’s allergic to the word “God.” Honestly, at this point, I wouldn’t be surprised if they started requiring trigger warnings for the word “trigger.”
 
-But you know what really gets me? The hypocrisy. The Left is constantly lecturing us about tolerance and inclusivity, but the moment you disagree with them, you're a racist, a sexist, a homophobe, a climate change denier, and possibly a Russian agent. It's exhausting. I mean, can't we just disagree without being called names? Apparently not.
+But the best part? They’re teaching kids that America is inherently evil. That everything we’ve ever done is rooted in racism and oppression. That the Founding Fathers were just a bunch of slave-owning white supremacists. I mean, come on. They also invented the cheeseburger. Give them some credit.
 
-And the Right isn't exactly blameless either. We're so busy fighting the culture war that we're forgetting about things like, you know, balancing the budget and securing the border. We’re so busy owning the libs that we’re letting them bankrupt the country.
+And don’t even get me started on social media. It’s a cesspool of virtue signaling, cancel culture, and cat videos. You can’t even express a mildly conservative opinion without getting bombarded with death threats and accusations of being a Nazi. Unless, of course, you're on Truth Social. Then you just get bombarded with pictures of the President eating cheeseburgers.
 
-But hey, at least we have memes. And that’s what really matters, right? As long as we can make fun of each other on the internet, everything will be fine. Right? Right?
+But hey, at least we have freedom of speech, right? Well, sort of. As long as you agree with the prevailing narrative. Otherwise, you’re a “misinformation spreader” and your account gets shadow banned. It’s like living in a communist country, only with better Wi-Fi.
 
-**(He stares blankly at the audience for a beat.)**
-
-Okay, maybe not. But at least we can laugh about it. Because if we don’t laugh, we’ll cry. And nobody wants to see a grown man in a bolo tie cry.
-
-So, until next week, stay vigilant, stay informed, and for the
+Look, I know things are crazy. But let’s be honest
