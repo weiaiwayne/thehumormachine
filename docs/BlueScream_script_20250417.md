@@ -1,47 +1,37 @@
-**(Opening sequence: Fast cuts of Trump rallies, Fox News headlines, oil slicks, and then a title card that reads: “BlueScream: Still Here, Still Screaming”)**
+**(Opening music fades, BlueScream strides onto the stage to roaring applause and whistles. He adjusts the mic, a mischievous glint in his eye.)**
 
-**(BlueScream walks onto the stage, takes a sip of water, and surveys the audience with a weary smile.)**
+Good evening, patriots and… well, *others*. It's BlueScream, and I'm here to remind you that yes, this is still happening. The year is 2025, and if you’re feeling a sense of déjà vu that’s probably because you’ve already lived this nightmare once, maybe twice, depending on your… stamina.
 
-Alright, alright settle down folks, you’re giving me flashbacks to that time I accidentally wandered into a mime convention. Except, you know, louder.
+So, the Trump administration is back. Again. Think of it as the world's longest, most expensive, and least satisfying reboot. Like they brought back "Friends," but instead of coffee and witty banter, it's trade wars and… whatever it is he does with his hair.
 
-So, here we are. 2025. And if you're even remotely surprised that we're still talking about *him*, you clearly haven’t learned a damn thing about how this country operates. It's like the Energizer bunny, except instead of selling batteries, it's selling… well, let’s just call it “alternative facts.”
+And the thing is, folks, I’m not even surprised. At this point, I expect the Four Horsemen of the Apocalypse to show up at the next State of the Union, wearing MAGA hats and hawking NFTs.
 
-**(Beat. BlueScream gestures vaguely.)**
+You know, the first time around, we thought, "Okay, this is a novelty. A weird blip in the timeline." But now? Now it’s like that one uncle who keeps showing up at Thanksgiving, drunk and ranting about lizard people. You don't want him there, but you’ve accepted he’s part of the family… a deeply, profoundly embarrassing part of the family.
 
-Four more years, people. Four more years of… whatever *this* is. I’ve officially stopped calling it a “presidency.” It's more like an extended performance art piece. A really, really bad one. Like, “Cats” level bad. And I'm not talking about the broadway show, I'm talking about the Tom Hooper adaptation.
+And what's even more terrifying is the level of… normalcy. People are just… shrugging. Like, “Yeah, okay, another day, another executive order declaring war on… pronouns.” We've become desensitized to the absurd. We're like frogs slowly boiling in a pot of orange-tinted water.
 
-**(BlueScream shudders.)**
+Speaking of which, the new Secretary of Education just announced that climate change is “a liberal hoax perpetrated by Big Globe.” Big Globe! Apparently, the Illuminati outsourced their conspiracy theories to a toddler. And the best part? She was confirmed by a unanimous vote in the Senate. Bipartisanship! It's alive and well, folks, just… pointed directly at the sanity of the planet.
 
-Speaking of things that should be buried and forgotten, remember that whole “infrastructure week” thing? Yeah, me neither. But fear not! This time, it’s different! This time, we’re building a *moon base*. Yes, a moon base. Because apparently, Earth's problems are too boring. We need to pollute space now, too. It's like moving to a new house just to trash it faster.
+But hey, on the bright side, at least we're tackling the important issues. I saw on Fox News this morning that they're really concerned about the new M&M characters being too "woke." Apparently, the green M&M wearing sneakers is a clear sign of the downfall of Western civilization. I mean, I get it. We can't have our candy getting too uppity. Next thing you know, they'll be demanding equal pay and healthcare.
 
-And the best part? It's being spearheaded by a consortium of tech bros who think putting a dome on the moon is the same as solving income inequality. One of them even suggested mining lunar cheese to solve world hunger. I swear, I'm not making this up. Although, if I *was* going to make something up, it would be slightly less insane.
+And the economy? Oh, the economy is booming! For… someone. I'm not entirely sure who, but I'm assuming it's the same people who own all the yachts and private islands. The rest of us are just… participating. Like hamsters on a very expensive, very stressful wheel.
 
-**(BlueScream leans into the mic.)**
+But don't worry, the administration has a plan to fix it! They're cutting taxes for the wealthy. Again. Because, you know, that's *totally* worked in the past. It’s like trying to fix a leaky faucet by turning the water on full blast.
 
-Meanwhile, back on Planet Reality, things are… well, they're reliably terrible. The Supreme Court has declared that oxygen is optional, as long as you’re contributing to the GDP. Just kidding. Mostly. But they *did* rule that corporations have the right to sue you for hurting their feelings. And by "hurting their feelings," I mean "criticizing their business practices." So, watch what you tweet, folks. Big Oil has a good cry and suddenly you owe them your house.
+And the Supreme Court? Don't even get me started. They're so conservative, they make Phyllis Schlafly look like a radical feminist. I wouldn't be surprised if they started hearing cases on whether or not women should be allowed to own property.
 
-**(BlueScream throws his hands up in mock despair.)**
+You know, I was talking to my therapist the other day, and I said, "Doc, I'm starting to think that maybe this is all just a simulation. That we're living in some kind of bizarre, hyper-realistic video game designed to test the limits of human endurance."
 
-And the climate? Oh, the climate. We’re now officially experiencing “unprecedented weather events.” Which is code for “everything’s on fire, underwater, or both.” The Great Lakes are now the Great Puddles, and Miami is the Atlantis of our time. But hey, at least we have that moon base to escape to when the whole thing goes belly up. Assuming, of course, you can afford the ticket. And the oxygen.
+And he said, "That'll be $300."
 
-**(Beat. BlueScream sighs dramatically.)**
+So, I guess it's not a simulation. It's just… real life. And real life is… well, it's something.
 
-The only good news is that political satire is basically writing itself these days. I just need to transcribe the news and add a few well-placed pauses. The problem is, I’m starting to feel like a court jester in the court of madness. Like, I’m making jokes about the apocalypse, and the audience is politely chuckling along, as if we’re just discussing the weather. Which, ironically, we are.
+But you know what? I'm not giving up. I refuse to let the absurdity win. Because if we stop laughing, if we stop pointing out the madness, then they win. They want us to be complacent. They want us to just accept this as the new normal.
 
-**(BlueScream walks to the edge of the stage.)**
+And I say, "No way."
 
-But here’s the thing. I refuse to normalize this. I refuse to accept that this is just “the new normal.” Because the new normal is a dumpster fire wearing a toupee. And we can’t let that dumpster fire dictate the terms of our existence.
+We're not going to let them turn America into some kind of dystopian reality show. We're not going to let them destroy the planet for a few extra tax breaks. And we're definitely not going to let them tell us that green M&Ms in sneakers are a threat to democracy.
 
-**(BlueScream’s voice turns serious for a moment.)**
+So, let's keep laughing. Let's keep fighting. Let's keep reminding them that we're not going anywhere.
 
-So, what do we do? Well, first, we stop doomscrolling. Seriously, put down your phones. Go outside. Touch grass. Remember what the sun feels like before it fries us all to a crisp.
-
-Then, we get organized. We find common ground. We talk to people who don’t agree with us. And we vote. Like our lives depend on it. Because, let's be honest, they kind of do.
-
-**(BlueScream returns to his lighter tone.)**
-
-And in the meantime, I'll be here, screaming into the void. Because someone has to. And because, frankly, it’s cheaper than therapy.
-
-**(BlueScream winks.)**
-
-Now, if you'll excuse me, I need to go practice my lunar cheese mining techniques. You know, just
+Because this is our country. And we're not going to let them take it away from us.
