@@ -1,0 +1,23 @@
+**(Monologue begins, ShadowComic walks onto the stage, adjusts the microphone with a weary sigh, a single spotlight illuminating him.)**
+
+Alright, alright, settle down, you beautiful, doomed optimists. I just crawled out from under a rock – coincidentally, the same rock the GOP is currently using for its platform – and let me tell you, the internet is… the internet. It's like a dumpster fire that somehow learned to code.
+
+So, I was perusing Reddit, as one does when contemplating the existential dread of late-stage capitalism, and I stumbled upon a goldmine of… well, let’s call it “material.”
+
+Apparently, there’s a whole sub dedicated to people complaining about airlines losing their luggage. Which, I gotta say, is peak First World problem. I mean, your designer handbag ended up in Ulaanbaatar? Think of it as an impromptu cultural exchange. Maybe your Gucci loafers will inspire a new line of felt boots. Besides, the real loss is your faith in humanity, which, let’s face it, was already on budget airlines anyway.
+
+But the real kicker? People are *furious* about the *potential* for airlines to start charging for overhead bin space. Furious! Like, pitchforks-and-torches furious. Listen, I get it. We’re all cattle crammed into metal tubes hurtling through the sky. But maybe, just maybe, if you’re packing a carry-on the size of a small refrigerator, you’re part of the problem. You know, that’s why I’m only traveling with a t-shirt and a pamphlet about the dangers of unchecked executive power. I can always wash the t-shirt in the sink of my luxury yurt.
+
+And speaking of things that are unnecessarily large, did you see Trump’s new line of… *digital trading cards*? Apparently, you can now own a virtual image of the former president dressed as a superhero. I'm just waiting for the NFT where he's riding a dinosaur. It’s like a fever dream designed by a committee of QAnon shamans and desperate venture capitalists. The irony, of course, is that he’s selling these things to fund his legal battles. So, basically, you’re paying to watch him lose in court. It’s like a reverse GoFundMe for schadenfreude.
+
+But here’s the thing that really got me. On another subreddit, people were debating whether or not it’s okay to re-gift presents. Re-gifting! This is where we’re drawing the line? I mean, we’re living in a world where billionaires are launching themselves into space while teachers are buying school supplies with their own money, and you’re worried about Aunt Mildred finding out you gave her the same fruitcake she gave you last year? Look, re-gifting is the ultimate act of recycling. It's the eco-conscious choice. It's practically revolutionary. Plus, Aunt Mildred probably doesn't even remember giving it to you in the first place. Dementia is the gift that keeps on giving.
+
+And then, of course, there’s the constant stream of outrage over… everything. Someone wore the wrong shoes to a wedding. Someone used Comic Sans in a presentation. Someone dared to express an opinion that wasn’t perfectly aligned with the hive mind. Look, I get it. We’re all looking for something to be angry about. It’s a coping mechanism. It’s cheaper than therapy. But maybe, just maybe, we could channel that energy into something… productive? Like, I don’t know, dismantling the patriarchy? Or at least learning how to properly load a dishwasher.
+
+The internet has become a giant echo chamber where everyone is screaming into the void, desperately seeking validation from strangers. It’s like a digital version of that primal scream therapy, except instead of releasing pent-up emotions, you’re just generating more anxiety and division.
+
+And you know who’s loving it? The people in power. They’re sitting back, sipping their artisanal water, watching us tear each other apart over trivialities while they continue to dismantle our democracy, one tax cut at a time. Because as long as we’re distracted by the Great Re-gifting Debate of 2023, we’re not paying attention to the real crimes being committed.
+
+So, what’s the solution? I don’t know. Maybe we should all just log off and go touch some grass. Or, you know, burn it all down. Metaphorically, of course. I’m not trying to incite any actual violence, Mr. Barr. Just… metaphorical arson. The kind that sparks a revolution of the mind.
+
+Or, you know, just keep scrolling. Whatever floats your doom-scrolling boat. Just don’t expect me to feel sorry when your luggage ends up in Siberia.
