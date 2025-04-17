@@ -1,25 +1,49 @@
-**(Opening shot: A single spotlight on ShadowComic, dressed impeccably in black, leaning against a faux-brick wall. A single, slightly wilting American flag is pinned precariously behind him.)**
+**(Opening scene: ShadowComic strides onto a minimalist stage, bathed in a single, stark spotlight. He's wearing a subtly rumpled suit, a deliberate contrast to the perfectly coiffed news anchors flickering on a screen behind him. He raises an eyebrow, a ghost of a smile playing on his lips.)**
 
-Good evening, patriots. Or, as we’re now legally obligated to call you, ‘Consumers of American-Made Thought Products.’ Welcome back to… well, we’re not entirely sure what we’re calling this show anymore. The lawyers are still debating whether ‘Truth Adjacent’ is seditious. I’m ShadowComic, and I’m still here. Apparently, they haven’t found a suitable replacement yet. Or maybe they’re just enjoying the spectacle of my slow, agonizing descent into irrelevance. Either way, thanks for tuning in.
+ShadowComic: Good evening, patriots. Or as the Department of Re-Education prefers to call you now, "Compliance Units." Welcome to "Truthiness, Rebranded," the only show brave enough to tell you what the *official* truth is.
 
-So, another week in the glorious Second Trump Administration. It's like déjà vu, but this time the coffee tastes vaguely of desperation and burnt hair. Remember when we thought four years of that was the apocalypse? Turns out, that was just the trailer. This is the extended director's cut, now with extra authoritarianism and a free MAGA hat with every forced labor camp assignment.
+(He gestures vaguely towards the screen, which now displays a digitally enhanced image of President Trump, looking unnervingly svelte and sporting a halo.)
 
-Speaking of hats, did you see the President’s latest press conference? Magnificent. He unveiled the new national bird. No, not the bald eagle. Turns out, they're "too woke." Apparently, their baldness is a subtle commentary on the President's own hairline. The new national bird is the peacock. Because, as the President eloquently put it, "They're beautiful. They're vain. And they strut around like they own the place. Just like me!" The avian symbolism is… breathtaking.
+ShadowComic: Yes, folks, he's back. Twice as tanned, half the attention span. They say lightning doesn't strike twice, but apparently, electoral dysfunction does. And this time, it brought a friend: the Department of Cognitive Re-Alignment. Their motto? "Making America Think Again… The Way We Tell You To."
 
-And the Supreme Court? Oh, the Supreme Court is doing just fine. They're currently debating the merits of mandatory national anthem karaoke before every public restroom visit. Chief Justice Kavanaugh insists it's a matter of national security. Apparently, a poorly sung "Star-Spangled Banner" is a gateway drug to… I don't know… thinking for yourself?
+(He pauses for a beat, letting the silence hang in the air.)
 
-But the real news, the stuff that keeps me up at night, is the ongoing investigation into… wait for it… the “Deep State Squirrel Conspiracy.” Apparently, squirrels are secretly controlling the flow of acorns, thereby manipulating the world's nut-based economy. The evidence? A grainy photo of a squirrel wearing a tiny, almost imperceptible, earpiece. The lead investigator? Rudy Giuliani. Back from the dead, folks! Or at least, back from whatever dimension he was vacationing in.
+ShadowComic: Remember when we used to argue about tax cuts? Simpler times. Now we argue about whether gravity is a liberal hoax propagated by Deep State Newton. The official answer, by the way, is that gravity is "under review." Apparently, the President found it personally offensive when his golf ball landed in a bunker.
 
-The good news is, he's promised to reveal all the evidence at a press conference next week. He's booked the Four Seasons… again. But this time, he’s clarified it’s the Four Seasons Total Landscaping… in Siberia. Apparently, the cold helps his memory. Or maybe it just freezes his brain before he can say anything incriminating.
+(He takes a sip from a glass of water, his eyes never leaving the audience.)
 
-And let’s not forget about the economy. It’s booming! Well, for a select few. The rest of us are just trying to figure out how to pay for groceries with our government-issued TrumpCoin. It’s a digital currency backed by… well, nobody’s quite sure. It’s either gold, the President’s ego, or the tears of liberals. Probably all three.
+ShadowComic: And speaking of bunkers, the new White House is entirely subterranean. Apparently, the President's advisors convinced him that the sun is a socialist plot to redistribute vitamin D. The upside? No more embarrassing Rose Garden press conferences. The downside? We're one bad earthquake away from a sequel to "Dr. Strangelove."
 
-The official unemployment rate is zero! How? Simple. Everyone is now employed as a “Patriotism Compliance Officer.” Their job? To ensure everyone is adhering to the new national guidelines. Which, by the way, are updated daily via TikTok. And, in case you're wondering, yes, TikTok is now owned by the Trump Organization. They're calling it "TruthTok." It's where you go to get your daily dose of… truth. Conveniently filtered, of course.
+(He throws a playful jab at the audience)
 
-And speaking of truth, the Department of Education has released a new history textbook. It’s called "America: The Absolutely Amazing Story (According to Me)." It’s 800 pages of pure, unadulterated… historical fiction. Apparently, Abraham Lincoln was a Democrat. And the Civil War was fought over… tariffs.
+ShadowComic: Don't worry, I'm sure we'll all be safe. The Department of Homeland Security assures us that the new underground complex is entirely impervious to "un-American" phenomena like earthquakes and… facts.
 
-But hey, at least we have free speech, right? Well, sort of. You can say whatever you want, as long as it aligns with the official narrative. Dissent is… discouraged. And by discouraged, I mean punishable by re-education. Re-education, of course, involves watching endless loops of the President’s rallies. It’s surprisingly effective.
+(He shifts gears slightly.)
 
-The one bright spot? The resistance. It’s small, it’s scattered, and it’s mostly comprised of librarians and disillusioned AI programmers. But they’re out there. They’re whispering the truth in the digital shadows. They’re… well, they’re probably being monitored by the NSA. But at least they’re trying.
+ShadowComic: But it’s not all doom and gloom, folks. There are some bright spots. For instance, the national debt is now officially "imaginary." The Treasury Department has simply declared it a "liberal hallucination," and anyone who disagrees is invited to a complimentary re-education seminar. I hear they serve surprisingly good chamomile tea.
 
-I’m trying too. Every night, I come out here, under this spotlight,
+(He feigns a shudder.)
+
+ShadowComic: And remember climate change? Gone! Poof! Vanished faster than funding for public education. The Environmental Protection Agency has been replaced by the Department of Optimistic Weather Forecasts. Their latest report predicts a 100% chance of sunshine and prosperity… indefinitely. Any discrepancies you may notice are attributed to "alternative atmospheric narratives."
+
+(He leans into the microphone, lowering his voice conspiratorially.)
+
+ShadowComic: Of course, some naysayers, those relics of the pre-enlightenment era, still cling to their "data" and "science." But the President has a solution for them: the National Institute for Factual Revision. They're currently working on a comprehensive rewrite of history, starting with the inconvenient truth that he lost the 2020 election. The working title? "The Great American Victory: A Narrative of Uninterrupted Triumph."
+
+(He straightens up, his tone becoming more cutting.)
+
+ShadowComic: Meanwhile, the Supreme Court is busier than ever. They're currently hearing arguments on whether corporations have the right to vote, and whether the First Amendment protects the right to bear arms… *against* the government. Early indications suggest a favorable ruling on both counts. After all, who needs democracy when you have quarterly earnings reports?
+
+(He lets out a dry chuckle.)
+
+ShadowComic: But let's not forget the arts! The new Secretary of Culture has declared that all art must be "patriotic, uplifting, and devoid of subversive messaging." Which means we can look forward to a deluge of paintings depicting the President as a benevolent demigod, single-handedly wrestling alligators and solving world hunger. I’m particularly excited for the interpretive dance version of the Mueller Report.
+
+(He glances at his watch, a knowing glint in his eye.)
+
+ShadowComic: And that’s all the official truth we have time for tonight, folks. Remember, doubt is un-American. Critical thinking is a sign of insufficient patriotism. And independent thought is a gateway drug to… well, we don't talk about that.
+
+(He smiles, a genuine, almost defiant smile.)
+
+ShadowComic: Stay vigilant. Stay compliant. And above all, stay… uninformed. It’s safer that way.
+
+(He bows slightly as the spotlight fades, leaving the audience in darkness. The screen behind him flickers
