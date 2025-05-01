@@ -1,0 +1,23 @@
+**(ShadowComic strides onto a dimly lit stage, a single spotlight illuminating a mischievous grin. He’s wearing a suit that’s subtly too tight, a deliberate sartorial rebellion.)**
+
+Good evening, patriots… and those who haven’t yet been re-educated. We’re live, folks, from somewhere deep in the underground, a place they haven't yet declared a historical monument dedicated to the greatness of the Trump brand of steak. Tonight, we’re going to dissect the news, or what’s left of it after it’s been thoroughly de-woked, de-liberalized, and re-branded with gold leaf.
+
+So, let’s dive right in. President Trump, in his infinite wisdom, has just unveiled his latest initiative: "Operation American Renaissance." It’s basically a nationwide book burning, but with a much catchier name. Think of it as a literary bonfire, but instead of fostering community, it fosters… well, let’s just call it “enhanced patriotism.” The first book to go up in flames? Ironically, Ray Bradbury’s *Fahrenheit 451*. The irony, of course, is lost on everyone involved. Apparently, the only thing worse than burning books is writing one that predicts you might burn books. It’s a real Catch-22… and I’m sure that’s next on the pyre.
+
+And speaking of irony, remember when Trump promised to drain the swamp? Well, he’s certainly drained something. Turns out, it was the EPA budget. Now, instead of pesky environmental regulations, we have a national “Free Range Fracking” program. Every household gets a free drill, a map of their backyard’s potential oil deposits, and a signed photo of Don Jr. giving the thumbs up. It’s the American Dream, redefined for the 21st century. Who needs clean water when you can have slightly radioactive water and the smug satisfaction of knowing you’re energy independent?
+
+But wait, there’s more! Education Secretary Ivanka Trump has revolutionized the school system. Forget critical thinking and history, kids are now learning “Trumpian Economics” – a curriculum that focuses on the art of the deal, the power of branding, and the importance of suing anyone who disagrees with you. History class now consists of a meticulously curated slideshow of Trump’s greatest golf swings. Civics? That’s just learning the lyrics to "God Bless America" and how to properly salute a MAGA hat.
+
+And the Supreme Court? Oh, they’re just… delightful. They’ve managed to overturn Roe v. Wade… again. Just to be sure, you know? And they’ve declared that corporations are now legally considered “persons with feelings,” which means they’re entitled to emotional support animals, therapy, and the right to sue for hurt feelings. ExxonMobil is currently seeking damages from Greta Thunberg for “emotional distress caused by climate change activism.” I’m not making this up. Well, I am, but only slightly.
+
+Now, I know what you’re thinking: “ShadowComic, this all sounds a bit… dystopian.” And you’re right. It is. But hey, at least we’re making America great again!… or at least, great for a very specific demographic with a penchant for golf, gold-plated toilets, and the unwavering belief that windmills cause cancer.
+
+The good news, if you can call it that, is that the resistance is growing. It’s mostly happening in basements and online forums, but it’s growing. We’re like mushrooms after a nuclear rain: small, slightly radioactive, and determined to spread. We’re communicating through encrypted messages, using code words like “covfefe” and “hamberders.” It’s surprisingly effective.
+
+And the international community? Well, they’re mostly just shaking their heads and muttering things in languages we no longer understand. France has built a giant wall around itself, Germany is offering citizenship to anyone who can recite the preamble to the Constitution backwards, and Canada has officially declared itself a safe haven for political refugees… and anyone who knows how to make decent poutine.
+
+But don’t despair, my friends. Even in the darkest of times, there’s always room for humor. Because if we can’t laugh at the absurdity of it all, they win. And I, for one, refuse to let them win. Not without a few well-placed jokes and a healthy dose of subversive wit.
+
+So, keep your heads up, keep your spirits high, and keep your VPNs active. The revolution may not be televised, but it will be live-streamed from someone’s basement, with questionable lighting and a cat constantly walking across the keyboard.
+
+And remember, folks: stay informed, stay vigilant, and for the love of all that is holy, don’t drink the Kool-Aid… especially if it’
