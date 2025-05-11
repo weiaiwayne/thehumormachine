@@ -1,0 +1,23 @@
+**(Monologue begins; ShadowComic stands center stage, a single spotlight illuminating a weary but defiant smirk. The backdrop is a subtly distorted American flag.)**
+
+Good evening, patriots… or whatever term the Ministry of Truth is using these days. I’m ShadowComic, still here, still flickering like a dying fluorescent bulb in a FEMA detention center.
+
+So, another week in the Glorious United States of… well, let’s just say “America.” President Trump, in his infinite wisdom – and by “infinite,” I mean he’s still claiming he won the popular vote in 2016 – has declared this week “National Gratitude to the Supreme Leader Week.” Apparently, we weren’t grateful *enough* last year. The commemorative coin is lovely though. Solid gold, featuring Trump’s profile… and, for a limited time only, a tiny, almost invisible likeness of Putin whispering sweet nothings into his ear. Collector’s item, I’m told. Pre-orders are through Truth Social, naturally.
+
+Speaking of Truth Social, the platform is booming! Mostly with bots, of course, but also with a surprisingly large contingency of ex-Twitter users who, after being caught using unapproved pronouns, were offered a choice: re-education camp or Truth Social verification badge. Tough choice, really. I hear the re-education camp has surprisingly good artisanal coffee now, though they only serve it in MAGA-branded thermoses.
+
+But it’s not all sunshine and authoritarianism, folks. We’ve got real problems. The economy, for instance, is… interesting. Inflation’s so high, a loaf of bread costs more than a semester at Trump University. Which, by the way, is back in session. This time, they’re offering a groundbreaking new course: “Alternative History: How to Make America Great… Again… Again… Again…” The syllabus includes such gems as “The War of Northern Aggression: A Triumph of States’ Rights” and “The Deep State: It’s Real, and It’s Coming For Your Toaster.”
+
+And then there's climate change. Or, as the President calls it, "a liberal hoax perpetrated by windmills and AOC's tears." His solution? Build a giant wall around Florida. He says it'll keep the rising sea levels out. I'm not an engineer, but I'm pretty sure water doesn't respect walls. Unless, of course, it's the *right* kind of wall. You know, a beautiful, big wall. A wall that Mexico will pay for… eventually. I think we're still waiting on that check.
+
+But the real story this week is the ongoing investigation into… well, everything. The January 6th Select Committee, now comprised entirely of Rudy Giuliani, is investigating itself and has concluded that January 6th was, in fact, a peaceful protest organized by Antifa to make Trump look bad. The report is 800 pages long, all handwritten in crayon, and concludes with a powerful recommendation: more Diet Coke for everyone.
+
+And let’s not forget the border. The wall is… mostly there. Parts of it are quite majestic, others are… well, let’s just say smugglers have found some innovative uses for ladders and tunnels. The President's response? He's proposed a new border patrol unit comprised entirely of trained eagles. Apparently, they're very good at spotting illegal immigrants… and shiny objects.
+
+The midterms are coming up, which is always a cause for… something. The Democrats, bless their hearts, are running on a platform of “Maybe We Can Be Slightly Less Terrible.” Their slogan is “Vote Blue… Or Else Things Will Be Even Worse.” Inspiring, isn’t it? The Republicans, meanwhile, are promising to Make America Great… Again… Again… Again… for the fifth time. Their slogan is “MAGA 5.0: This Time We Really Mean It.”
+
+But honestly, folks, I’m not worried. I have faith in the American people. I have faith that, eventually, we’ll wake up from this collective fever dream and realize that we’ve been collectively punk’d by reality TV. I have faith that one day, we’ll look back on this era and laugh. Or, more likely, cry into our MAGA-branded thermoses filled with artisanal coffee.
+
+Speaking of faith, the President announced a new cabinet position this week: Secretary of Divine Intervention. His first act was to declare himself the chosen one. Again. The runner-up was Elon Musk, who graciously conceded, saying he was too busy colonizing Mars to bother with earthly matters. Apparently, Mars is much more libertarian. Less bureaucracy, more flamethrowers.
+
+So, there you have it. Another week in the Glorious United States of… well, you know. Stay vigilant, stay skeptical, and remember: if you see
