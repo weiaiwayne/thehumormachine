@@ -1,41 +1,27 @@
-**(Opening scene: ShadowComic stands center stage, bathed in a single spotlight. He's wearing a tailored suit that's just a *little* too tight. He sips from a suspiciously large water bottle.)**
+**(ShadowComic strides onstage, adjusts the mic with a weary sigh, and smirks at the camera.)**
 
-Alright, alright, settle down folks. Welcome back to “Truthiness: Still Technically Legal.” It’s great to be here. Mostly. You know, for a show broadcasting from… *checks notes* … a decommissioned Chuck E. Cheese in Tijuana. Turns out, “Free Speech Zones” have a different definition these days. More like “Free Speech, *Si usted tiene visa.*”
+Alright, alright. Welcome back to… well, let's just call it 'Free Speech Hour,' sponsored by whatever's left of the First Amendment. Thanks, Elon.
 
-Speaking of visas, anyone seen Melania lately? Just asking for a friend. A very, *very* powerful friend. Who’s also… apparently a collector of vintage garden gnomes. Don't ask.
+So, I've been watching C-SPAN. I know, I know, I’m practically begging for a visit from the Patriot Police. But someone's gotta do it, right? Someone’s gotta watch Acting ICE Director Lyons, who, by the way, looks like he irons his eyebrows. He was up on Capitol Hill explaining how… efficient… they’ve become. Efficient at what, you ask? Well, let's just say they've streamlined the process of separating families. It's like Amazon Prime, but instead of getting a package in two days, you get your kids scattered across three continents. And they call it "compassionate enforcement." I swear, the only thing they’re enforcing is the complete erosion of my faith in humanity.
 
-But let's get real, shall we? The year is 2025. And if you're not feeling a profound sense of existential dread, you're either blissfully ignorant or, more likely, you're on the Supreme Court.
+And then there's HHS Secretary Robert F. Kennedy Jr. I had to triple-check the calendar. 2025. Not 1968. RFK Jr., the poster child for vaccine skepticism, now in charge of… Health and Human Services. It’s like putting a pyromaniac in charge of the fire department. He’s testifying about Trump's 2026 budget request, which I assume involves cutting funding for, well, everything except maybe the wall. I hear they’re thinking of extending it all the way up to Alaska. Just in case any rogue polar bears decide to sneak into the country. Can’t be too careful, you know. They might be carrying… liberal ideas.
 
-Remember back in 2020 when we all thought things couldn't get any weirder? Ah, youth. So naive. So... pre-mandatory re-education camps for anyone caught quoting Hamilton.
+RFK Jr. was predictably grilled about his, shall we say, *unique* understanding of science. One Senator asked him, point blank, about the measles outbreak in several states. Kennedy's response? Something about "personal freedom" and "big pharma conspiracies." I swear, I almost choked on my kombucha. (Don't worry, it was locally sourced, organic, and probably doesn't contain any actual kombucha.)
 
-(Takes a long swig of water.)
+You know what's really scary? The fact that people actually *believe* this stuff. They see a Kennedy, they hear the name, and they automatically assume… what? That he's some kind of enlightened guru? Never mind the decades of misinformation he's been peddling. The Kennedy name is apparently Teflon-coated. It can withstand any amount of crazy. I guess it’s better than the Trump name, which is… what’s the opposite of teflon? Velcro? Everything sticks to it, especially lawsuits.
 
-Anyway, the Big Man’s back. And this time, he’s not playing. He's *literally* not playing. Apparently, golf is now considered a “gateway activity” to… *checks notes again* … “critical race theory appreciation.” So, no more tee times. Just mandatory viewings of “Celebrity Apprentice” on a loop. For national security reasons, of course.
+Speaking of Trump, have you seen the latest polls? He’s still…winning? Are you kidding me? I’m starting to think the only way to stop him is to release the Kraken. No, not the mythical sea monster. I’m talking about the *other* Kraken. You know, the one Sidney Powell promised us? The one that was supposed to expose the election fraud? I'm pretty sure that Kraken is just a bottle of cheap rum she found in Rudy Giuliani’s basement.
 
-And the cabinet? Oh, honey, the cabinet. It’s like a parody of a parody. The Secretary of Education is a parrot trained to recite excerpts from “Art of the Deal.” The Secretary of Energy believes windmills cause autism. And the Secretary of Transportation? Well, let's just say Elon Musk is now in charge of all public transport and the only option is a self-driving Cybertruck painted gold. Good luck parallel parking in Manhattan.
+I saw a headline today that said, "Trump Admin 'looking at' suspending key right." Oh, joy. Which one is it this time? Freedom of speech? Freedom of the press? Freedom to… breathe? Apparently, they’re considering suspending *habeas corpus*. You know, the thing that says you can't just throw someone in jail without a reason? I guess that’s just a little too… inconvenient… for the Trump administration. They prefer the "guilty until proven useful" approach.
 
-But hey, at least gas prices are down! Mostly because nobody can afford to drive anywhere anymore. The economy is booming! For arms dealers and purveyors of luxury bunkers. Everyone else is just… thriving in the resilience economy. You know, bartering for lentils and homemade kombucha. It's very artisanal. Very… post-apocalyptic chic.
+And then there’s Gary Pizzo, the Florida politician who dramatically left the Democratic Party. I guess he finally saw the writing on the wall. Or maybe he just realized that the only way to get elected in Florida these days is to wear a MAGA hat and promise to deport all the alligators. He’s running for governor now, as an independent. I give him six months before he announces his conversion to Trumpism and starts railing against the dangers of… well, whatever Fox News tells him to rail against. Probably books.
 
-And the news? The *real* news? That's all on Substack, baby. Run by exiled journalists from… well, everywhere. It's like the French Resistance, but with better Wi-Fi and more cat memes.
+You know, I used to think that satire was dead. That reality had become so absurd that it was impossible to parody it. But then I woke up this morning and saw that RFK Jr. was testifying before Congress about public health policy. And I realized that satire is not dead. It's just… exhausted. It's lying on the floor, gasping for air, trying to keep up with the sheer, unadulterated lunacy of our political landscape.
 
-(Pauses, looks directly into the camera.)
+I’m telling you, folks, we are living in a choose-your-own-adventure novel written by Stephen King and QAnon. And the ending is not looking good.
 
-You know, they say history repeats itself. But this time, it feels less like a repeat and more like a remix. A really bad remix. Like Skrillex doing a polka.
+But hey, at least we have C-SPAN. Right? It’s the only place you can watch democracy slowly die in real time. With closed captioning.
 
-Remember the good old days when we were worried about fake news? Now, we’re worried about *real* news. Because the government is making it illegal. It's a whole new level of irony. It's like Orwell wrote a sitcom, and the laugh track is provided by state-sponsored bots.
+So, if you’ll excuse me, I’m going to go home and build a bunker. And stock it with kombucha. And maybe a really good lawyer. Just in case Acting ICE Director Lyons decides my eyebrow game isn’t up to par.
 
-Speaking of bots, apparently, the entire online commentariat is now just AI. Which explains a lot, honestly. All those arguments about pineapple on pizza? Generated by algorithms designed to create maximum societal discord. Makes you think, doesn’t it? About the true meaning of… digital existentialism. Or maybe I just need a stronger drink.
-
-(Gestures to the water bottle.)
-
-Don't worry, this is totally water. I swear. It's just… infused with electrolytes. And a healthy dose of paranoia.
-
-But hey, at least we have entertainment! The new season of "The Real Housewives of Mar-a-Lago Retirement Home" is supposed to be *amazing*. Apparently, Ivanka and Tiffany are feuding over who gets to inherit the golden toilet. Riveting stuff. Truly. It's the kind of drama that makes you forget about the impending climate apocalypse.
-
-And speaking of climate change, remember when that was a big deal? Now, it's just… Tuesday. The polar bears have all moved to Canada. They're starting a hockey team. It's actually quite heartwarming. In a tragically ironic sort of way.
-
-(Leans into the microphone conspiratorially.)
-
-You know, I heard a rumor that the government is planning to rename the Earth. Something catchier. Something more… on brand. I'm thinking "Trump World: Now With More Deserts." Or maybe "MAGA-terra." I don't know. I'm just spitballing here.
-
-But seriously, folks, what's a comedian to
+**(ShadowComic raises a fist in a half-hearted salute, then shuffles offstage.)**
