@@ -1,41 +1,39 @@
-**(Opening music fades, studio audience applauds. RedStateRoast strides confidently to center stage, a glint in his eye.)**
+(RedStateRoast strides confidently onto the stage, a mischievous glint in their eye.)
 
-Alright, alright, settle down, folks. You all look like you just found out Hunter Biden’s been appointed head of the DEA. Which, knowing this administration, is entirely plausible.
+Evening, Patriots! Or, as the left now calls you, “Domestic Extremists In Need of Re-Education Camps.” Good to be back. Still employed. Against all odds.
 
-Speaking of our esteemed President… Trump held a rally in Iowa yesterday. Said he was there to support the farmers. You know, the salt of the earth, the backbone of America. Then he spent 45 minutes talking about how windmills cause cancer in bald eagles and how he personally invented corn.
+So, RFK Jr. is our HHS Secretary. Let that sink in. The guy who made a career out of saying vaccines cause autism is now in charge of… well, everything related to our health. You know, the irony is so thick, you could spread it on toast and call it breakfast in the new Biden-free America.
 
-Apparently, nobody had the heart to tell him that the Iowa caucuses are over. Bless his heart. He’s like a golden retriever chasing a tennis ball it already caught.
+Remember when the Left used to clutch their pearls about Trump appointing unqualified people? "The swamp! The swamp!" They cried. Now they’re silent. Probably too busy practicing their “I told you so” face for when the Measles outbreak hits San Francisco harder than a woke policy proposal in rural Alabama.
 
-But hey, at least he’s consistent. Consistent in his… let’s call it “alternative accounting” of reality. Remember when he promised to drain the swamp? Now it’s more like he built a water park in it. With a lifetime pass for the swamp creatures.
+And speaking of swamps, C-SPAN is wall-to-wall with these hearings. RFK Jr. testifying on the 2026 budget. Apparently, the first thing he did was demand they replace all the hand sanitizer with colloidal silver. Because, you know, science! I’m kidding. Mostly. I did hear he wants to replace the CDC logo with a picture of a single, rogue antibody fighting the man.
 
-And the economy! Oh, the economy. Inflation’s so high, I saw a homeless guy turn down a nickel. He said, “Nah, I’m holding out for a dime. Gotta diversify my portfolio.”
+Honestly, it’s beautiful. Like watching a dumpster fire fueled by organic kale and conspiracy theories.
 
-But don't worry, Janet Yellen's on it. She just announced a new initiative to combat inflation: "Positive Vibes and Manifestation." I'm not making that up. I swear, I almost choked on my artisanal, organically-sourced, gluten-free, non-GMO, freedom-loving bullet coffee when I heard that.
+Meanwhile, ICE Director Lyons is also testifying. I bet that's a barrel of laughs. I imagine the Dems are bringing out their favorite props: pictures of sad children, statistics carefully cherry-picked to omit any mention of MS-13, and the evergreen accusation of “human rights abuses.” You know, the usual guilt trip.
 
-Meanwhile, Congress is gridlocked tighter than a Kardashian's corset. The Democrats are still investigating Trump. The Republicans are still investigating Hillary. And I'm starting to think both sides are just running out the clock until they can retire and collect their sweet, sweet government pensions.
+Look, I get it. Nobody *likes* seeing families separated. But nobody likes seeing their daughters separated from their innocence by illegal alien gang members, either. But that's a story you won't see on CNN. More likely, you'll get a puff piece on how these 'undocumented' people are the backbone of the country. Unless, of course, they're voting Republican. Then they're an existential threat to democracy, apparently.
 
-Speaking of retirements, remember Kamala Harris? She's "transitioned" into a full-time influencer. Apparently, her "authentic" content isn't resonating, because her latest sponsored post was for a line of camouflage Crocs. I'm not sure who she's trying to appeal to, but it's definitely not the fashion-forward.
+I also saw online that Pizzo is running for Governor of Florida, now that he's abandoned the Democratic Party. Good luck with that buddy! I wish him all the best. In another country.
 
-And then there’s the culture wars. Oh, the culture wars. They’re raging on like a dumpster fire fueled by social media outrage. Woke is still the boogeyman, cancel culture is still the enemy, and pronouns are still… well, pronouns are still pronouns. Unless you’re on TikTok, then they’re a political statement.
+Speaking of the election, you notice how the media is still trying to find new ways to demonize Trump? Remember “habeas corpus”? They were worried Trump was going to suspend it. You know, that ancient legal principle that prevents the government from just throwing you in the dungeon without a trial.
 
-I saw a headline the other day that said, “Gen Z Declares War on the Oxford Comma.” I swear, I almost joined them. That thing is a menace. But then I realized, if Gen Z is fighting the Oxford comma, who’s going to fight the real enemies, like… avocado toast?
+Now, I’m not saying I *want* anyone thrown in a dungeon. But if some of these perpetually outraged, soy-latte-sipping activists mysteriously disappeared, I wouldn’t exactly be shedding any tears. Just saying.
 
-And let's not forget about foreign policy. Biden's trip to Europe was a real success. He managed to offend the French, confuse the Germans, and accidentally declare war on Luxembourg. All in a three-day weekend.
+But back to Trump. The New York Times actually ran an article analyzing his "television presidency." Apparently, he’s the ultimate TV president. No kidding! The guy’s a walking, talking reality show. He's like if Judge Judy ran the free world. Though, to be fair, Judge Judy would probably do a better job managing the national debt.
 
-Meanwhile, China is building islands in the South China Sea faster than I can build a wall out of MAGA hats. And Russia is… well, Russia is still doing whatever Russia does. Which, as far as I can tell, involves shirtless horseback riding and hacking our elections.
+And that AP article about RFK Jr.'s Senate hearing? They're already laying the groundwork for the "RFK Jr. is a Danger to Public Health" narrative. They’re practically salivating at the prospect of him single-handedly bringing back the Black Plague.
 
-But hey, at least we're united here at home. United in our… frustration. United in our… cynicism. United in our… shared Netflix password.
+You know what I think? I think the Left is terrified. They're terrified because they can't control the narrative anymore. They’re used to having a monopoly on truth, on morality, on everything. And now, suddenly, there's a loud, unfiltered voice saying things they don't want to hear.
 
-Seriously, though, folks, what are we doing? We're arguing about pronouns and avocado toast while the world is literally on fire. We're so busy hating each other that we've forgotten what it means to be Americans.
+And that voice, my friends, is not going away.
 
-We need to get our act together. We need to stop listening to the talking heads and start talking to each other. We need to remember that we're all in this together, even if half of us are wrong. (Beat. Smiles wryly.) Just kidding!
+The best part is watching them try to cope. They're so busy trying to discredit Trump, RFK Jr., and anyone else who dares to challenge their worldview that they can't see the forest for the virtue signaling.
 
-But seriously, we need to find some common ground. We need to rediscover our sense of humor. We need to remember that politics is just a game, and that life is too short to be angry all the time.
+They're so busy screaming about "fascism" that they’ve become the very thing they claim to hate. They’re so busy trying to silence dissent that they’ve forgotten what freedom actually means.
 
-So, let’s all take a deep breath, crack open a cold one (preferably a Bud Light, just to trigger the libs), and remember that tomorrow is another day. And who knows? Maybe tomorrow, Hunter Biden will actually get nominated as head of the DEA.
+And that, my friends, is the funniest thing of all.
 
-(Pauses for laughter, then leans into the microphone.)
+So, crack open a beer, enjoy the show, and remember: in the age of Trump, the only thing you can truly rely on is the sheer, unadulterated absurdity of it all.
 
-Stay tuned, folks. It’s going to be a wild ride.
-
-**(Closing music begins, RedStateRoast waves goodbye to the audience.)**
+(RedStateRoast takes a final bow as the audience cheers, a knowing smile playing on their lips.)
