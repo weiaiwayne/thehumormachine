@@ -1,31 +1,44 @@
-**(RedStateRoast theme music plays, a distorted version of “God Bless America” with a heavy metal guitar solo. RedStateRoast strides confidently onto the stage, a can of Bud Light seltzer in hand.)**
+**(RedStateRoast strides onto the stage, adjusts the microphone with unnecessary force, and surveys the audience with a glint in his eye.)**
 
-Howdy, folks! RedStateRoast here, comin’ at ya live from the only comedy show that hasn’t been labeled a terrorist organization by the IRS. Yet.
+Howdy, folks. Or, as Biden probably says to his grandkids, “Ni hao, folks!”
 
-(Takes a long swig of the seltzer)
+**(Beat for groans/polite chuckles)**
 
-Boy, what a week, huh? The swamp is so drained, you can now see all the alligators sunbathing in the muck. It’s beautiful.
+Alright, alright, settle down, snowflakes. Tonight’s news is brought to you by MyPillow. Because even in the apocalypse, you deserve a decent night’s sleep. Especially if that apocalypse is being brought to you by your own government.
 
-First up, let’s talk about this "impeachment" sham. Turns out, even *Democrats* don’t want to impeach President Trump. I know, I know, shocking. It's like finding out that vegans secretly crave a good ol' Texas barbeque. Seems this Thanedar fella was gonna force a vote, and the swamp creatures, bless their black, shriveled hearts, couldn’t have *that*. Bipartisanship is alive and well, folks, at least when it comes to protecting the Orange God-Emperor from… accountability? What’s that even mean anymore?
+So, what fresh hell has the swamp coughed up today?
 
-(Cranes his neck to look at the news on the teleprompter)
+Well, Trump's over in the Middle East, right? Apparently, he's found some folks even *more* enthusiastic about showering him with gifts than the RNC after a Mar-a-Lago fundraiser. I mean, Qatar is basically offering us a used 747. It's like finding out your grandpa traded his dentures for a timeshare in Branson.
 
-Speaking of Drain the Swamp, check out this headline: "U.S. AG Pam Bondi Sold More than $1 Million in Trump Media Stock the Day Trump Announced Sweeping Tariffs." Now, that’s what I call *synergy*. You see, the libs complain we only care about money, but they're also upset when we make it? Now *that*’s projection. Plus, give Pam some credit. She knows that when our Great Leader makes a tariff announcement, it's time to get the hell out. It's called diversification, libs, learn it. Now, if you'll excuse me, I have some crypto to sell, and a trade deal to tweet about.
+The Left, of course, is clutching their pearls. "It's a bribe!" they scream. "It's a violation of the Emoluments Clause!" Listen, libs, last I checked, it ain't illegal to take a perfectly good airplane off the hands of some folks who are just gonna let it sit around collecting dust. Besides, haven’t you people heard of recycling? It is the *Greenest* thing for him to do. 
 
-And speaking of grifting, is anyone surprised Qatar offered our glorious leader a free plane? It’s like offering a starving man a donut. He just can't resist. Now, the Libs are crying that it's illegal, but I say, if you got it, flaunt it. Besides, it's not like Sleepy Joe used his position to enrich his family, right? Oh wait...
+And I bet you are wondering, RedStateRoast, how is Trump going to pay for the required Air Force One Upgrades? 
 
-(Looks at the teleprompter again, squints)
+Well, I’m glad you asked, Timmy!
 
-And the Supreme Court’s gonna hear this case about birthright citizenship? Oh, Lord, here we go. The libs are saying that if the Supreme Court sides with Trump, "it’ll give future presidents the power to rewrite the Constitution with an executive order." As if the Constitution hasn't been rewritten like 78 times already. Look at what they did to the Second Amendment! So, I say let the Supreme Court and the President do their thing.
+Turns out that same day, our Attorney General Pam Bondi sold between $1 million and $5 million worth of shares of Trump Media. Coincidentally, that was also the day Trump announced those sweeping tariffs that sent the stock market into a tailspin. Pure coincidence, I'm sure. Just a couple of smart cookies lookin' out for their financial futures. In fact, what is the point of having all that "inside" information if you are not going to trade on it? 
 
-In healthcare news, the Left are up in arms over Trump's new healthcare plan, Dr. AI. Oh the horror! How dare we innovate! Well, maybe if you could accurately diagnose a hangnail over Zoom, you might have a point. But, hey, at least Dr. AI isn't gonna ask you if you identify as a gender unicorn. Small victories, am I right? Plus, I bet Dr. AI is cheaper than Obamacare, and I am for one, ready to save some money.
+I mean, she probably just needed some extra cash to buy more hairspray. That stuff ain’t cheap, folks. Especially the industrial-strength stuff Bondi uses to keep her coif in place while defending Dear Leader from the Deep State.
 
-But hey, here is the kicker: Ben & Jerry's co-founder, arrested for protesting at an RFK Jr. hearing. It's a beautiful thing. When you’ve reached peak woke, you’re basically a performance artist now. Throwing a tantrum at an RFK Jr. hearing? That’s not protesting. That’s…performance art with a hint of elder abuse. Now, about that new flavor: "Social Justice Swirl?" I pass.
+Of course, the Left is apoplectic. "Insider trading!" they shriek. "Corruption!" they wail. Oh, please. I’m sure she had no idea the tariffs were coming. She probably just had a hunch. A patriotic hunch.
 
-And here's a thought for all you leftists out there: I want to thank you for supporting my financial success! All your outrage, the petitions, the boycotts, the pearl-clutching? It's all free advertising! Keep it coming.
+Speaking of unhinged lefties, Ben & Jerry's co-founder got dragged out of an RFK Jr. hearing for shouting about Gaza. Folks, if even *Ben & Jerry* think you’re too far gone, maybe it’s time to re-evaluate your life choices.
 
-(Winks at the camera)
+And finally, because the world wasn’t quite dystopian enough, apparently Grok, Elon Musk's AI chatbot, has a sudden obsession with "white genocide" in South Africa. Folks, I think we are closer to the Terminator movie than we think. I fully expect a robot to show up on my doorstep demanding my guns to save humanity in three, two...
+**(Checks watch)**
+...still waiting. 
 
-That's all the time we have tonight, folks. Remember, stay free, stay MAGA, and never, ever trust a vegan with a million-dollar ice cream fortune. RedStateRoast out!
+And the Democrats are clutching at their pearls, thinking this is some kind of gotcha for Trump. “Oooooh, the robot is racist!”
 
-**(The distorted "God Bless America" theme music swells as RedStateRoast exits stage left, leaving a trail of empty Bud Light seltzer cans.)**
+**(RedStateRoast leans into the mic)**
+
+Listen, libs, the robot is just telling the truth. It's probably seen the crime statistics. It knows. And frankly, if AI is what it takes to wake this country up, I say let’s give ‘em all Skynet access.
+
+**(Beat)**
+
+Of course, with robots getting more powerful, we will have to deal with the new normal of robot health care. I am not talking about some robo-surgeon, but rather about what RFK Jr. is planning to do with Artificial Intelligence. Apparently AI will diagnose you, treat you, and then, ultimately, probably deny your claim. But hey, at least you will be treated equally with the rest of the plebians.
+
+**(RedStateRoast shrugs, smirks, and takes a swig from a comically large soda cup with a Trump sticker plastered on it.)**
+
+That's all the time we have tonight, folks. Remember to buy gold, own guns, and trust no one. Except maybe MyPillow. And definitely not AI. Goodnight, and God bless America. And yes, I do mean *America*.
+**(RedStateRoast exits, leaving the audience in a state of bewildered amusement.)**
