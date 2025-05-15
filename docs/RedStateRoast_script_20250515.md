@@ -1,37 +1,33 @@
-(RedStateRoast walks to center stage, a single red baseball cap emblazoned with "Keep America Sane" perched precariously on their head. The crowd murmurs with anticipation.)
+(RedStateRoast strides onto the stage, casually tossing a crumpled "Don't Tread On Me" flag onto a nearby stool. The crowd, a mix of genuine patriots and rubbernecking liberals, cheers warily.)
 
-Alright, alright, settle down, snowflakes. Or, as the Department of Homeland Security now classifies you, "Potential Disgruntled Citizens with Access to Etsy." Good to be back. Still breathing. Barely.
+Evening, freedom-loving folks! Or, as the Ministry of Truth now refers to you: "Potential disruptors of the sanctioned narrative, pending psychological evaluation." Good to be back. Still haven’t been memory-holed. Yet.
 
-So, the big news, folks, is that Trump just declared war on… Canada. Apparently, Trudeau wore a slightly more flattering shade of orange to the G7 summit. Trump saw the pictures, went ballistic, and now we're mobilizing the National Guard to seize control of their syrup reserves. He says it's about “protecting American breakfast.” I think it's about protecting his ego from any perceived slight north of the border.
+So, the big buzz this week is Trump’s new campaign slogan: "Make America…Again-er." Apparently, the focus groups told him "Again" just wasn’t cutting it anymore. Needed that extra dollop of nostalgia. It's like he's trying to reboot the 80s, but instead of leg warmers and synth-pop, we get tariffs and Twitter rants at 3 AM. He also keeps trying to get people to say "Make America Great Again-est", but I'm not sure he understands what "est" means. I think it's a cry for help.
 
-I heard his war council consists of Don Jr., Kimberly Guilfoyle, and a very confused Rudy Giuliani who keeps asking if Canada is part of Ukraine. The battle plan allegedly involves infiltrating Tim Hortons with undercover agents disguised as lumberjacks, and replacing all the maple syrup with high-fructose corn syrup. It’s a bold strategy, Cotton, let’s see if it pays off.
+And speaking of incoherent rambling, Biden's been pretty quiet this week. Which, let's be honest, is a win for everyone. The White House is claiming he's "focusing on infrastructure." I suspect he's actually just trying to figure out how to use the self-checkout at Whole Foods. I heard he tried to pay for his prune juice with a rotary phone.
 
-And speaking of international relations, remember when the left was worried Trump would start World War III? Turns out, he's just starting really petty border disputes over pastry preferences. Progress!
+Meanwhile, the Democrats are still trying to decide who their next sacrificial lamb will be. AOC is rumored to be considering a run. Which would be…interesting. Imagine her debating Trump. It would be like watching a butterfly try to wrestle a grizzly bear on live television. A very articulate, social media savvy butterfly, but a butterfly nonetheless.
 
-Meanwhile, back in the good ol' US of A, Congress is debating a bill to make "owning a firearm" a constitutional requirement for citizenship. You know, because nothing says "land of the free" like forcing immigrants to buy AR-15s before they can vote. The Democrats are, predictably, freaking out. They're claiming it's a thinly veiled attempt to disenfranchise minorities. I say, maybe if they stopped trying to take away our guns, we wouldn't have to keep making them mandatory. Logic!
+I saw that Kamala Harris is now the official spokesperson for the Metaverse. She's hosting virtual town halls in Second Life, trying to convince digital avatars to vote Democrat. I’m not sure who's more confused: her, or the avatars who still think it's 2007. I heard she tried to give a virtual hug to a pixelated libertarian who immediately filed a restraining order.
 
-I saw AOC on MSNBC the other day – which, let’s be honest, is like seeing a unicorn at a dumpster fire. She was ranting about the "weaponization of patriotism." Apparently, waving the American flag is now a sign of white supremacy. I guess I missed the memo where Betsy Ross became a Grand Wizard.
+And speaking of technology, Elon Musk just unveiled his latest invention: the "De-Wokerizer 5000." It's a brain implant that instantly converts liberals into conservatives. He says it's a "public service." I suspect it's a marketing ploy to sell more Teslas to red states. The first test subject was Chris Hayes. The results were… inconclusive. He kept ranting about the Koch brothers, but now he also owns three guns and a pickup truck.
 
-And speaking of white supremacy, the White House just announced its new diversity initiative: "The All-American Aryan Outreach Program." It's designed to promote "understanding and tolerance" between different racial groups… by having them compete in a series of Olympic-style events like log tossing, lederhosen dancing, and shouting racial slurs in increasingly creative ways. I’m not sure if it will work, but it's definitely going to be entertaining.
+I also saw that the Supreme Court is hearing a case on whether or not corporations can be held liable for "emotional distress" caused by their advertising campaigns. Apparently, some millennials are suing Bud Light for giving them anxiety about their gender identity. I’m not sure how that works, but I’m pretty sure the real victim here is the American beer industry.
 
-I also saw that Elon Musk is now the Secretary of Transportation. He's replaced all the traffic lights with neural implants that control your car's speed based on your political affiliation. If you're a registered Republican, you get to drive at warp speed. If you're a Democrat, you're stuck in perpetual gridlock. He calls it “efficient resource allocation.” I call it "the future I saw coming."
+And you guys hear about the new Broadway musical? It's called "Hamilton: The MAGA Years." It's about Alexander Hamilton's secret love affair with Betsy Ross and his deep-seated hatred of immigrants. It's already sold out for the next five years. Lin-Manuel Miranda is reportedly considering moving to Canada.
 
-And you guys hear about the new Supreme Court nominee? It's Kid Rock. No, I'm serious. Trump apparently thinks he's the only one who can "drain the swamp" and "shake things up" on the bench. I’m picturing oral arguments devolving into beer-fueled singalongs of "Bawitdaba." I think he’s already planning on replacing all the gavels with shotguns.
+I also saw that the Department of Education is now requiring all students to take a mandatory course on "Critical Race Theory for Dummies." It's designed to teach kids that everything is racist, even if they don't know why. The course culminates in a "privilege walk" where white students are forced to apologize for the sins of their ancestors. I’m not sure if it will solve racism, but it's definitely going to make Thanksgiving dinner awkward.
 
-I also saw that Kamala Harris is now hosting a reality show called "Keeping Up With the Congressional Caucuses." It's basically *The Real Housewives* but with more policy debates and fewer catfights. Although, I wouldn't rule out a hair-pulling incident between Marjorie Taylor Greene and Nancy Pelosi. Ratings gold, I tell you.
+And speaking of awkward, Trump just announced his new social media platform: "Truth Social…Again-er." It's exactly the same as the old Truth Social, but with more bots and fewer users. He says it's the "last bastion of free speech." I suspect it's a way for him to keep tweeting without getting fact-checked by Twitter. He's already banned anyone who criticizes his toupee.
 
-And speaking of reality TV, Trump is launching a new streaming service called "MAGAflix." It's going to feature exclusive content like "The Apprentice: Deep State Edition," "Keeping Up With the Trumps: Mar-a-Lago Mayhem," and a documentary about the dangers of soy milk. I’m already subscribed.
+I'm not saying I *want* to live in a world where reality is whatever Trump says it is. I’m just saying, at least it's consistent. Unlike the actual news.
 
-I'm not saying I *want* to live in a dystopian reality TV show. I’m just saying, at least it's entertaining. Unlike the actual news.
+The media is having a field day with the latest polls. Apparently, Trump's approval rating is now lower than Liz Cheney's chances of winning a beauty pageant. But hey, at least he's consistent. And his supporters are nothing if not… dedicated. They're like the Borg of political demographics: resistance is futile.
 
-The media is having a meltdown over the fact that Trump just pardoned Joe Exotic. Apparently, he thinks he's a "victim of the deep state." I'm not sure what's more terrifying: the fact that Trump is president, or the fact that Joe Exotic is now a free man with a platform.
+And the Democrats? They're still trying to figure out how to appeal to the working class. They're suddenly all about "economic populism" and "fighting for the forgotten man." As if anyone actually believes they care about anything other than identity politics. They’re about as authentic as a politician promising to lower your taxes.
 
-And the Democrats? They're still trying to impeach Trump. Again. For the 37th time. This time, it's for "crimes against Canadian syrup." I'm starting to think they're addicted to the process. It's like their version of crack.
+So, buckle up, folks. The apocalypse is coming. And it's going to be televised.
 
-The best part is watching them try to convince the American people that Trump is a threat to democracy. After all, he’s just a symptom of a larger problem: the fact that half the country has completely lost its minds.
+Just remember to laugh. Because if you don't laugh, you'll end up joining a cult in Oregon and writing poetry about the oppression of pronouns. And nobody wants that.
 
-So, grab your popcorn, folks. The circus is in town. And it's only going to get weirder from here.
-
-Just remember to laugh. Because if you don't laugh, you'll end up joining a commune in Oregon and writing poetry about the oppression of kale. And nobody wants that.
-
-(RedStateRoast removes the "Keep America Sane" hat, bows deeply, and exits stage left as the audience erupts into a cacophony of laughter, cheers,
+(RedStateRoast shrugs, grabs the crumpled flag, and exits stage left as the audience offers a mix of cheers and stunned silence.)
