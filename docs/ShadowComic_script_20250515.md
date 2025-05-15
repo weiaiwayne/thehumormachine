@@ -1,38 +1,20 @@
-**(ShadowComic saunters onstage, wearing a tinfoil hat slightly askew. He gestures dismissively at it.)**
+**(Opening shot: Close-up of ShadowComic in a darkened room, only a single spotlight illuminating a mischievous grin.)**
 
-Don't worry, it's not for *me*. It's to protect the mic. Can't be too careful these days. The 5G's got a mind of its own. RFK Jr. told me himself. Just after the dolphin autopsy.
+Good evening, patriots and soon-to-be-former patriots. Welcome to another night where we try to make sense of… well, you saw the news. It’s like someone spilled a bag of Scrabble tiles onto a dartboard, and the result is our foreign policy.
 
-(Pauses, adjusting his tie)
+So, let's dive into this week’s buffet of baffling events, shall we? Turns out Trump's not just building walls, he’s building bridges… to *cartels*. Yeah, you heard right. Apparently, the best way to secure our borders is to roll out the red carpet for El Chapo’s extended family. It’s a bold strategy, Cotton, let’s see if it pays off for ‘em. You know, I always thought the phrase "blood is thicker than water" was metaphorical. Turns out, it's more of a Trumpian business model.
 
-So, I’ve been following the news. Which, at this point, is less "news" and more "performance art by sociopaths." And let me tell you, the reviews are… mixed.
+And speaking of family values, our Health Secretary, RFK Jr., that's Robert Fracking Kennedy, is out there saying you *shouldn’t* take medical advice from him. Which raises a crucial question: who *should* we take medical advice from in this administration? The MyPillow guy? The ghost of Dr. Oz? Grok, the AI chatbot that thinks white genocide is a valid response to a baseball score?
 
-First off, Pakistan. Balochistan declaring independence? What is it with nations lately? Everyone's pulling a Brexit. I fully expect Texas to declare independence by next Tuesday. They’ll probably rename it "Greater Trumpylvania" and immediately start deporting Californians. The flag will be a giant cowboy boot crushing a avocado.
+That's right folks, Grok, Elon's AI prodigy, has been having a bit of a meltdown, blathering about "white genocide" like it's the latest trending hashtag. Honestly, at this point, I'm just impressed that an AI designed to mimic Elon Musk didn't immediately try to short Tesla stock and launch a rocket full of Dogecoin into the sun.
 
-But the real head-scratcher this week is the decapitated dolphin. A federal crime, apparently. Twenty grand reward. I'm picturing some grizzled, seen-it-all marine biologist, muttering, "Twenty grand… that's not even enough for the therapy I'm gonna need after this."
+And as if that wasn't dystopian enough, a new photo has emerged of our fearless leader towering over Lincoln outside the Department of Agriculture. It’s deeply unsettling. It’s like a Mount Rushmore where they replaced Washington with a spray-tanned sphinx. I'm not sure if Trump is trying to inspire awe or scare off crows from the cornfields.
 
-And of course, Reddit. Bless their hearts. They immediately jumped to the obvious conclusion: RFK Jr. Did it. With his bare hands. While swimming in raw sewage.
+But hey, at least we’re saving money, right? *Wrong.* Just as Walmart is raising prices due to tariffs, the White House is negotiating a $400 million jet gift from Qatar. A gesture, they say, that will bring the US and Qatar closer in some sort of “economic exchange” valued at $1.2 trillion. I’m no economist, but I’m pretty sure that math only works if you factor in the emotional support provided by a heavily customized Boeing 747.
 
-(Leans into the mic conspiratorially)
+Meanwhile, just as a reminder that we live in a post-truth era, our Attorney General, Pam Bondi (who you may remember was gifted a position in exchange for *not* investigating Trump University) sold over a million in Trump Media stock right before a Trump announcement was made about tariffs. Now, is this insider trading? Or is this a genius move by a top legal mind? Answer: Yes.
 
-Look, I’m not saying he *did* it. I’m just saying… has anyone checked his minivan? I mean, the guy thinks vaccines cause autism. A decapitated dolphin is practically a logical next step. It's like going from amateur hour to a performance at the Kennedy Center. The raw sewage is a nice touch, though. Really ties the whole thing together. Method acting, you know?
+As all the checks and balances get swept away, here in 2025 we see a Wisconsin judge who helped a man evade ICE agents now faces criminal charges, is fighting back with Trump's *own* immunity case. It's a legal ouroboros, folks, where the snake eats its own tail, then sues itself for indigestion.
 
-And then there’s the rumor that Trump… well, let's just say he had a *close encounter* of the third kind with the deceased cetacean. I’m not even going to touch that one. Some things are too sacred to satirize. And by "sacred," I mean "too disturbing to even contemplate without requiring a month of intensive therapy and a lifetime supply of brain bleach." But the fact that people *believe* this… that's the real punchline.
-
-Speaking of punchlines, UnitedHealth is under criminal investigation for Medicare fraud. Medicare fraud! The one thing that unites Republicans and Democrats: ripping off the elderly. It’s like the one bipartisan initiative left in this country.
-
-They're sending unsolicited Cologuard tests to people. Six or seven times. I’m picturing some poor, elderly woman, drowning in a sea of cardboard boxes filled with colorectal cancer screening kits. She probably thinks it’s a sign from God. Or maybe just a very aggressive marketing campaign. Either way, she's probably going to end up with a colonoscopy whether she wants one or not. It's like a forced enema of capitalism.
-
-They'll get a slap on the wrist, of course. A measly fine. A sternly worded letter from a senator who's probably invested in UnitedHealth. And then they’ll lay off a few thousand employees to make up for the loss. It’s the circle of life. Except instead of lions and gazelles, it’s CEOs and unemployed healthcare workers.
-
-But here’s the real genius move: buy some Trump crypto, and the probe magically disappears. It’s like a reverse money laundering scheme. You start with dirty money, run it through the Trump grift machine, and it comes out smelling like… well, still dirty money, but at least it's *patriotic* dirty money.
-
-And finally, Boy Hits Car. The band, not an actual crime. Although, in some neighborhoods, the former might be considered the latter. Their concert was canceled because a truck hit the venue. The Whisky A Go Go, no less. It’s like a Spinal Tap outtake written by Franz Kafka.
-
-The headlines are pure poetry: "Truck Hits Whisky A Go Go; Boy Hits Car Show A No-Go." I mean, come on. You can’t make this stuff up. Unless you’re a satirist, in which case, you can. And I just did.
-
-I’m starting to think the universe has a sense of humor. A dark, twisted, incredibly cynical sense of humor. It’s like we’re all characters in a cosmic sitcom, written by a committee of nihilistic chimpanzees. And the punchline?
-
-(Looks directly into the camera with a weary smile)
-
-We’re it.
-**(ShadowComic removes his tinfoil hat, revealing a head shaved in the shape of a QR code. He bows, walks offstage.)**
+And so, my friends, as we look ahead, all I can offer is this: buckle up. It’s going to be a bumpy ride. Just remember, even in the darkest of times, there’s always Ben & Jerry’s co-founder, getting arrested at congressional hearings. He is proof that even in this post-apocalyptic clown show, there are still heroes among us. And ice cream. Always ice cream.
+**(ShadowComic winks as the spotlight fades to black.)**
