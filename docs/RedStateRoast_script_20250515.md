@@ -1,30 +1,31 @@
-**(RedStateRoast strides confidently onto the stage, adjusting the microphone with a knowing smirk.)**
+(RedStateRoast saunters onto the stage, adjusting the microphone with a practiced hand, a single, slightly crooked "Make America Great Again" hat perched on the music stand.)
 
-Evening, patriots! Or, as they say in Portland, "Good Evening, Comrades! Please remember to compost your anxieties."
+Howdy, folks! Or, as CNN probably calls you, "The reason democracy is on life support." Glad to be here. Still haven't been deplatformed. Yet.
 
-Another beautiful day in Trump's America. And by beautiful, I mean terrifyingly beautiful. Like a sunset over a nuclear test site. Speaking of which, did you see Biden’s latest interview? He looked like he was trying to remember the name of his cat. The cat died in 1987. He’s a walking, talking, gaffe-generating testament to the wonders of modern medicine. Bless his heart. And get him a teleprompter with REALLY big font.
+So, President Trump just announced his new initiative: “Operation Gridlock the Gridiron.” Apparently, he's convinced the NFL is a hotbed of wokeism, and he's deploying Barron to personally teach every quarterback in the league how to throw a spiral that respects the flag. It's gonna be YUGE. I heard the first training session involves replacing the football with a commemorative Trump-branded brick. For accuracy, you know.
 
-The Times is doing live coverage of Trump's presidency? Live coverage? That’s like live coverage of a Category 5 hurricane. You know it's going to be a wild ride, you know you should probably evacuate, but you're also secretly morbidly curious about what happens when a Taco Bell gets swept away.
+And speaking of wokeism, have you seen the latest outrage? The Department of Education is now mandating that all history textbooks include a chapter on the dangers of "toxic masculinity" during the War of 1812. Apparently, Andrew Jackson's victory at the Battle of New Orleans was just a symptom of repressed male aggression. I'm surprised they haven't blamed global warming on the patriarchy yet. Although, give them time, I'm sure they're workshopping it.
 
-And The Independent is reporting that a Mexican governor says Trump revoked her tourist visa. Revoked! I love it. Turns out "build the wall" wasn’t just a metaphor. It's now a personalized border control strategy. I picture Trump sitting at his desk, flipping through passport photos, muttering, "Nope, nope, definitely not... ah, there's one! Denied! For crimes against American taste buds – that cilantro abomination you call salsa? Unforgivable.”
+Meanwhile, the Supreme Court is hearing arguments on whether or not federal agencies can require employees to attend mandatory "sensitivity training" sessions. You know, the ones where you're forced to sit through hours of lectures on microaggressions and unconscious bias, while your brain slowly melts out of your ears. I heard Justice Kavanaugh keeps interjecting with, "I like beer! Do *you* like beer?" The liberals are losing it. I think he might be a sleeper agent for sanity.
 
-Meanwhile, the Democrats are still searching for their own… well, anything resembling a cohesive strategy. It's like watching a bunch of squirrels trying to assemble an IKEA bookshelf. Lots of frantic activity, plenty of squeaking, but ultimately ending up with a pile of mismatched parts and a gnawed instruction manual. They're pinning their hopes on Gavin Newsom, I hear. Gavin Newsom! The man who makes even Nancy Pelosi look like a fiscal conservative. He’s so slick, he probably oils his hair with unicorn tears.
+I saw Ted Cruz on Fox News the other day – which, let’s face it, is like seeing a vampire at a blood bank. He was talking about the “deep state” infiltration of the National Park Service. Apparently, they’re replacing all the historical plaques with ones that emphasize the indigenous perspective. So now, instead of learning about the brave pioneers who conquered the West, you’re reading about how they were actually just privileged colonizers who stole everything from the peaceful Native Americans. Which, you know, might be… partially true. But where’s the fun in that? History is supposed to be about glorifying the winners, not apologizing for them.
 
-I saw a Reddit post the other day comparing Trump to a reality TV star. Well, duh! He IS a reality TV star. Except instead of fighting over cake decorating, he’s fighting over, you know, the future of Western civilization. Same difference, really. Less frosting, more existential dread.
+And you guys hear about the new White House chef? It's Chef Boyardee. No, I'm serious. President Trump apparently loves his canned pasta so much he personally appointed him. State dinners are gonna be…interesting. I’m picturing world leaders trying to maintain diplomatic relations while struggling to navigate a plate of spaghetti and meatballs with a fork. Talk about a foreign policy crisis.
 
-And the AP is keeping us updated on all the political news. Bless their hearts. They’re still trying to figure out if Trump's hair is real. Guys, it's 2025. We have self-driving cars and lab-grown meat. Can't we figure out if a toupee is glued to a billionaire's head? Priorities!
+I also saw that Kamala Harris is writing a children's book about the importance of pronouns. I'm sure it'll be a real page-turner. Especially for the toddlers who are already fluent in intersectional theory. I can see it now: "The Adventures of They/Them and the Misgendering Monster." It's got "Pulitzer Prize" written all over it.
 
-I read some comments online saying Trump is going to run for a third term. Settle down, folks. We're not Venezuela yet. Although, the way things are going with the price of gas, maybe we should start looking into nationalizing our oil reserves. Just kidding! (Mostly.)
+And speaking of books, remember when everyone was freaking out about Trump potentially banning books? Now, the only books being banned are the ones that don’t toe the progressive line. It's like Fahrenheit 451, but with trigger warnings and safe spaces.
 
-The other day I saw a protest outside the White House. Signs everywhere. “Resist!” “Impeach!” “Free Britney!” Wait, what? Is she still a thing? Look, I get it. Everyone's got their own cause. But maybe focus on the whole "saving democracy" thing before you start demanding justice for a pop star who hasn't released an album since 2016.
+I'm not saying I *want* to ban books. I’m just saying, maybe we should start with *Mein Kampf*. Or anything written by Al Sharpton. You know, just to be fair.
 
-Speaking of protests, I saw one where they were burning MAGA hats. Burning hats? Is that the best you’ve got? I mean, come on! At least try to be creative. Burn a Bernie Sanders doll dressed as a communist leprechaun. Now THAT'S entertainment.
+The media is having a field day with the latest poll numbers. Apparently, Trump's approval rating is hovering somewhere between "slightly better than cholera" and "slightly worse than the IRS." But hey, at least he's consistent. And his supporters are nothing if not loyal. They're like the Honey Badger of political demographics: they don't care. They just keep on MAGA-ing.
 
-I’m starting to think that the only way to make sense of American politics these days is to embrace the absurdity of it all. Just throw your hands up, laugh maniacally, and accept that we’re all living in a real-life episode of *The Twilight Zone*, written by a committee of chimpanzees on meth.
+And the Democrats? They're still trying to figure out what went wrong. They’re blaming everything from Russian bots to systemic racism to the Electoral College. Anything but their own terrible ideas. It’s beautiful, really. It’s like watching a group of clowns trying to solve a Rubik’s Cube while juggling flaming torches.
 
-I saw a poll the other day that said Trump's approval rating is at 42%. Forty-two percent! That's practically a mandate. Either that, or 42% of Americans are legally insane. I'm going with the latter.
+The best part is watching them try to appeal to the working class. They’re suddenly all about “economic justice” and “fighting for the little guy.” As if anyone actually believes they care about anything other than their own power. They’re about as authentic as a vegan steak.
 
-And the media? Don't even get me started. They're still clutching their pearls over everything Trump says. It's like watching a bunch of Victorian ladies faint at the sight of a bare ankle. Get over it, people! He's been saying crazy stuff for decades. If you're still shocked, you haven't been paying attention.
+So, buckle up, folks. It's gonna be a wild ride. The next few years are going to be filled with more drama, more outrage, and more absurdity than a season of *Real Housewives*.
 
-So, what's next? World War III? Alien invasion? Another season of *The Real Housewives of D.C.*? At this point, anything is possible. Buckle up, folks. It's going to be a bumpy ride. And don't forget to compost your anxieties.
-**(RedStateRoast winks, takes a swig of water, and exits stage right to a mixture of cheers and boos.)**
+Just remember to laugh. Because if you don't laugh, you'll cry. And nobody wants to see you cry. Unless you're a liberal. Then they'll probably just accuse you of mansplaining your emotions.
+
+(RedStateRoast tips the "MAGA" hat, a glint in their eye, and exits stage right as the audience roars with laughter and scattered shouts of "USA! USA!")
