@@ -1,33 +1,35 @@
-**(ShadowComic walks onstage, removes a pair of aviator sunglasses, and squints at the audience as if surprised to see them.)**
+**(ShadowComic shuffles onstage, dragging a small, battered globe behind him. He sets it down with a thud and stares at it skeptically.)**
 
-Evening, patriots. Or… whatever you are. I'm still trying to figure out if "citizen" is even a valid legal term anymore. I think it's been replaced by "compliant data node" in the latest executive order.
+Good evening. Or good… something. Hard to keep track of time when the news cycle moves faster than Trump's lawyers.
 
-So, I just came from a town hall meeting in… let's call it "Flyover, USA," because admitting the actual location might trigger a drone strike. The topic? The proposed "Patriotism Re-Education Camps." Yeah, you heard that right. Camps. Like summer camp, but instead of learning how to make friendship bracelets, you learn how to properly salute a flag emblazoned with Trump's face. I hear arts and crafts hour involves making miniature walls out of popsicle sticks and nationalist fervor.
+So, I just got back from a fact-finding mission. I circled the globe… digitally. Because, you know, passports are for communists and people who want to see things that aren’t gold-plated. And let me tell you, the planet is… shrinking. Not physically, of course. Although, with the polar ice caps melting as fast as Trump’s approval rating among moderate Republicans, maybe it *is* shrinking. No, it’s shrinking ideologically. It’s all becoming one giant, beige-colored… Mar-a-Lago.
 
-The administration’s calling it a “proactive measure to combat misinformation.” Which, in this context, means anything that doesn’t directly originate from Truth Social. I overheard one woman saying she was excited because her grandson would finally learn "real history," like how the Earth is flat and Hillary Clinton runs a pizza parlor out of the Oval Office. I considered correcting her, but then I remembered that disagreeing with someone in public is now considered a hate crime, punishable by… well, I don’t know exactly. Probably something involving Tucker Carlson and a waterboarding technique using Mountain Dew.
+I saw on Reddit that the Patriotism Re-Education Camps are now mandatory for anyone caught using a non-approved emoji. Apparently, the winky face is a sign of "deep state subversion." Which, I guess, makes sense. It's pretty suggestive. I can see that. I think the official emoji of the Trump administration is the grimace. Or maybe just a picture of Rudy Giuliani sweating.
 
-And speaking of Truth Social, did you see Trump’s latest rant? Apparently, the squirrels in Mar-a-Lago are conspiring against him. He claims they’re planting tiny listening devices in his toupee. I’m not making this up. He literally tweeted, in all caps, "THE SQUIRRELS ARE TRAITORS! FAKE NEWS SQUIRRELS!" I mean, at this point, who needs satire? The man is a self-parodying masterpiece. He’s like performance art, if the art was a dumpster fire fueled by ego and spray tan.
+And speaking of mandatory things, did you hear about the new "Loyalty Pledge"? Every citizen now has to recite it before ordering a coffee. It’s a real mouthful. Starts with "I pledge allegiance to the flag of the United States of… Trumpylvania," and ends with "and may all liberal snowflakes melt in the glorious sunshine of the Trump empire." I tried ordering a latte this morning and almost choked on the word "empire." The barista just stared at me blankly. I think she’s been re-educated.
 
-The really terrifying part is, his base eats it up. They see him ranting about squirrels and they think, "Finally! Someone who understands my struggles!" It's like we're living in an alternate reality where the sanity test involves agreeing that rodents are part of a deep state conspiracy.
+The big news this week, of course, is Trump's latest legal victory. He managed to convince the Supreme Court that he’s actually immune from… well, everything. Turns out, the Constitution was just a suggestion. Like pants at Mar-a-Lago. He can literally shoot someone on Fifth Avenue… again… and claim diplomatic immunity. From himself. It’s genius, really. Evil genius, but genius nonetheless.
 
-But hey, at least the economy is… doing something. I’m not entirely sure what. I think it's mostly propped up by the sale of "Make America Great Again" gold-plated toilet plungers. They’re selling like hotcakes. Apparently, there's a huge demand for symbols of both patriotism and…well, you know. It's a very on-the-nose metaphor, if you think about it.
+And the Republicans are loving it. They’re all lining up to kiss the ring. Or, more likely, the golf shoe. I saw Senator McTurtle… you know, Mitch McConnell’s great-grandson… on Fox News yesterday, praising Trump’s “bold and decisive leadership.” I swear, he looked like he was being held hostage. He kept blinking SOS in Morse code with his eyelids. Either that, or he was just trying to stay awake. C-SPAN. It's strong stuff.
 
-And then there’s the ongoing investigation into… everything. They're investigating Biden, Obama, Clinton, the Easter Bunny, probably me after this set. The charges are always vague, usually involving "treasonous activities" or "failure to properly admire the Trump brand." They’ve even subpoenaed the ghost of George Washington. I’m not kidding. Apparently, he’s suspected of spreading "anti-Trump propaganda" through… seances? I don’t know. The details are sketchy. But I’m sure Fox News will have a panel of experts dissecting it for the next three weeks.
+Meanwhile, the Democrats are… well, they’re still figuring out what happened in 2016. They’re holding strategy sessions in yoga studios, trying to manifest a solution. I heard they’re thinking of running Oprah again. Or maybe a hologram of Ruth Bader Ginsburg. At this point, anything’s possible. Except, you know, actual meaningful change.
 
-The Justice Department, which now operates out of a converted Arby’s, is working overtime. I heard they’re thinking of replacing the scales of justice with a giant, golden Trump bobblehead. It tilts slightly to the right, naturally.
+And the economy? Don’t even get me started. Inflation is so high, a loaf of bread costs more than a year's tuition at Trump University. The stock market is fluctuating wildly, based entirely on Trump’s tweets. If he tweets something positive about ham sandwiches, the ham sandwich futures go through the roof. It’s insane. I’m thinking of investing in squirrel futures. Apparently, they’re poised for a major comeback.
 
-Oh, and remember that whole thing about climate change? Yeah, that’s… gone. Officially. The administration has declared that climate change is a hoax perpetrated by… wait for it… radical leftist penguins. Apparently, they’ve been melting the ice caps with their… penguin lasers? I don’t know, man. I’m just reporting the news here. Don’t shoot the messenger. Especially if the messenger is wearing a flak jacket and carrying a concealed copy of the Constitution.
+The administration is also cracking down on “fake news.” Which, apparently, includes anything that isn’t a glowing profile of Trump’s hair. They’ve shut down several major news outlets. Replaced them with state-run propaganda channels. They’re all broadcasting 24/7 footage of Trump playing golf. It’s mesmerizing. I almost forgot what reality was. Almost.
 
-The good news is, the Patriot Police are cracking down on… well, pretty much everything. But especially public displays of… emotion. Smiling is now considered suspicious. Crying is definitely a sign of disloyalty. The only acceptable facial expression is a blank, vaguely terrified stare. Think of it as the Mona Lisa, but with more existential dread.
+I saw a protest the other day. A small group of people holding signs that said “Resist.” The Patriot Police showed up and arrested them for… littering. Apparently, holding signs is now considered a form of environmental pollution. They’re replacing the signs with government-approved posters that say “Obey” and “Enjoy Your Complacency.” It’s very… Orwellian. With a touch of spray tan.
 
-I did see one act of rebellion the other day. Someone spray-painted "Resist" on a billboard featuring Trump's face. The Patriot Police were on the scene within minutes. They scrubbed off the word "Resist" and replaced it with "Re-elect." Problem solved. Democracy saved.
+And remember climate change? The administration has solved it! They’ve declared that it doesn’t exist. Problem solved. They’re now focusing on more pressing issues, like… building a giant golden statue of Trump on the moon. Apparently, it’s a “tribute to American exceptionalism.” I’m sure the aliens are thrilled.
 
-You know, I used to think that history rhymed. Now I’m pretty sure it’s just repeating itself, but this time with more reality TV stars and less common sense. It’s like we’re trapped in a never-ending episode of *The Twilight Zone*, but instead of Rod Serling, we have Steve Bannon as the narrator. And instead of a twist ending, we just have… more Trump.
+The scariest part is, people are starting to accept it. They’re becoming desensitized to the madness. They’re shrugging their shoulders and saying, “Well, at least the trains are running on time.” Or, you know, whatever passes for trains in Trumpylvania. Probably golf carts.
 
-So, yeah. That’s the state of the union. Or, you know, whatever this… *thing*… is we’re living in now. I'm thinking of starting a support group for people suffering from "Trump Derangement Syndrome." But I'm afraid the government will declare it a terrorist organization.
+I’m starting to feel like I’m living in a dystopian novel. Except the author is a reality TV producer with a severe personality disorder. And the ending… well, the ending is still being written. But it’s not looking good.
 
-**(ShadowComic pauses, looks directly into the camera with a deadpan expression.)**
+**(ShadowComic kicks the globe, sending it spinning wildly.)**
 
-On the bright side, at least the kombucha prices have stabilized. For now.
+I’m thinking of moving to Canada. Or maybe Mars. Anywhere that isn’t… this.
 
-**(ShadowComic tips an imaginary
+But hey, at least the kombucha is still locally sourced. For now.
+
+**(ShadowComic stares blankly at the audience, then slowly backs away, muttering something about needing a stronger drink.)**
