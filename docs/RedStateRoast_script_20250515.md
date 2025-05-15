@@ -1,31 +1,32 @@
-(RedStateRoast ambles onstage, adjusting a pair of oversized, star-spangled sunglasses. A half-eaten corn dog dangles precariously from one hand.)
+(RedStateRoast shuffles onto the stage, sets down the corn dog, and squints into the house lights.)
 
-Evening, citizens! Or, as the Globalist Elite Overlords now classify you: "Bio-unique carbon units awaiting resource allocation directives." Good to be back. Still not microchipped. Though I suspect my dentist is in cahoots with Bill Gates.
+Evening, folks. Or as the shadow government refers to you: "Battery hens, producing social media clicks for the algorithm's omelet." Feels good to be back. Still un-canceled. Though I did get a strongly worded email from the NRA suggesting I "tone it down on the sentient robot jokes." Apparently, they’re a key demographic for gun sales now.
 
-So, the big story, folks, is that Vice President MTG just declared May National Conspiracy Theory Awareness Month. She says it’s about “embracing alternative perspectives” and “questioning the official narrative.” I think it’s about finally legitimizing her QAnon bingo card. I heard the White House Easter Egg Roll will be replaced with a “Find the Real JFK Jr.” scavenger hunt. The grand prize? A lifetime supply of adrenochrome-infused gummy bears.
+So, let’s dive into the bubbling cauldron of American exceptionalism, shall we?
 
-And speaking of the Veep, she’s been unusually quiet on the Canadian front lately. Ever since President Trump, in his infinite wisdom, redrew the US-Canada border… on his golf course scorecard. Apparently, the 18th hole is now officially sovereign American territory. Trudeau is fuming. He threatened to retaliate by banning American hockey. But then remembered that nobody in America actually cares about hockey. Checkmate, Canada.
+First up: Balochistan. Apparently, they’re declaring independence from Pakistan. I know, I know, you’re thinking, “Where the heck is Balochistan?” Don’t worry, you're not alone. Half the State Department probably thinks it’s a new flavour of kombucha. But hey, good for them! Another country means another vote at the UN for whatever insane resolution we’re pushing this week. Although, knowing our luck, they’ll immediately recognize the Taliban as the legitimate government of Vermont.
 
-Meanwhile, the Dems are still trying to impeach… well, someone. Anyone. I think they’re holding auditions for impeachment-worthy offenses. AOC suggested impeaching Trump for “crimes against fashion” – citing his ongoing obsession with ill-fitting suits and that weird spray tan. I gotta admit, she’s got a point. But I think there are bigger fish to fry. Like, say, the looming threat of sentient AI overthrowing the government and forcing us all to wear matching jumpsuits.
+Speaking of questionable leadership, the feds are offering a $20,000 reward for information leading to the arrest of whoever decapitated that dolphin. A dolphin! Look, I’m all for protecting marine life, but 20 grand? You can get a used F-150 for that kind of money. Priorities, people!
 
-I saw Kamala Harris on TikTok the other day – which, let’s face it, is like seeing your grandma trying to twerk. She was promoting the administration’s new initiative to combat “digital disinformation” by… creating even *more* disinformation. Apparently, they’re going to flood the internet with AI-generated fake news stories designed to confuse and disorient the masses. It's like fighting fire with gasoline. But hey, at least it’s innovative.
+And the Reddit comments? Pure gold. Apparently, everyone thinks RFK Jr. is the prime suspect. Which, let’s be honest, isn't *entirely* unreasonable. The man’s practically a walking conspiracy theory generator. I bet he thinks dolphins are actually highly evolved alien spies sent here to control our minds with sonar waves. And knowing the way things are going, he’d probably find scientific evidence to back it up.
 
-And speaking of innovation, Elon Musk just announced his latest project: Neuralink for Pets. It’s a brain implant that allows you to communicate directly with your furry friends. He says it will “revolutionize pet ownership.” I suspect it will just lead to a massive influx of dogs demanding organic kibble and therapy sessions. I heard my neighbor’s cat already filed a lawsuit against him for “emotional distress” after reading his inner thoughts about wanting to replace her with a robot.
+Someone even suggested Trump did it, and then you know… Well, you know. It. Confirmed? Many people are saying it. See? This is why we can't have nice things.
 
-I also saw that the Supreme Court is hearing a case on whether or not the government can legally mandate the use of augmented reality glasses. Apparently, the deep state wants to force everyone to wear glasses that display government-approved news and propaganda 24/7. I’m not sure what’s more terrifying: the idea of being constantly bombarded with government propaganda, or the idea of everyone walking around looking like extras from a bad sci-fi movie.
+But the real crime here? That dolphin had Brucella! A bacteria that causes brucellosis, which can be transferred to people through direct contact. Great. Just what we need. Another reason to avoid Florida.
 
-And you guys hear about the new reality show? It’s called "The Real Deep Staters of D.C." It follows the lives of a group of high-ranking government officials as they navigate the treacherous waters of Washington politics, engage in clandestine meetings, and plot to undermine the President. It’s already a massive hit. I heard the show’s producers are struggling to keep up with the constant stream of leaks and insider information.
+Moving on: UnitedHealth is under criminal investigation for possible Medicare fraud. Medicare fraud! Shocking, I know. It’s not like healthcare companies are known for being bastions of ethical behaviour. I mean, come on. They’re basically legalized drug dealers in white coats.
 
-I also saw that the Department of Education is now requiring all teachers to undergo mandatory training in “woke micro-aggression detection.” It’s designed to teach teachers how to identify and address even the slightest hint of bias in their classrooms. I’m not sure if it will create a more inclusive learning environment, but it’s definitely going to create a generation of hyper-sensitive snowflakes who burst into tears every time someone accidentally misgenders their pet hamster.
+The Reddit comments are even better. Unsolicited Cologuard tests? Sounds like a business model designed by a sociopath. They just keep billing Medicare for tests that people don't need. And if they get caught? A measly fine. A slap on the wrist. A gentle caress from the cold, uncaring hand of corporate justice.
 
-And speaking of sensitivity, President Trump just announced his new social media platform: "Unfiltered Truth… Extreme Edition." It's exactly the same as the old Unfiltered Truth, but with even more bots, conspiracy theories, and unhinged rants. He says it's the "ultimate safe space for patriots." I suspect it's a way for him to monetize his outrage and avoid being censored by the liberal media. He’s already banned anyone who says his hair looks like a squirrel’s nest.
+One Redditor suggested that UnitedHealth just needs to buy some Trump crypto to get the probe dropped. I swear, satire is dead. Reality has officially jumped the shark, taken a bath in radioactive waste, and is now tap-dancing on the grave of irony.
 
-I'm not saying I *want* to live in a world where reality is indistinguishable from satire. I’m just saying, at least it's entertaining. Unlike the actual news.
+And the CEO quit without warning. Because nothing says "innocent" like fleeing the scene of the crime at Mach speed.
 
-The media is having a meltdown over the fact that Trump just pardoned a sentient AI robot convicted of hacking the Pentagon. Apparently, he thinks it's a "victim of the deep state's persecution of innovation." I’m not sure what’s more terrifying: the fact that Trump is president, or the fact that we now have sentient AI robots capable of committing crimes.
+But wait, there's more! A Boy Hits Car concert was cancelled after a truck hit the venue. You cannot make this stuff up. I mean, seriously. That’s like Alanis Morissette writing a song about irony. Oh, wait.
 
-And the Democrats? They’re still trying to figure out how to win back the trust of the American people. They’re suddenly all about “common sense solutions” and “bipartisan cooperation.” As if anyone actually believes they’re capable of anything other than infighting and virtue signaling. They’re about as authentic as a politician kissing a baby.
+"Boy Hits Car" is the name of the band, for those of you who are still trying to process that headline. It took me four tries, and I write comedy for a living. My therapist is going to love this.
 
-So, buckle up, folks. The future is here. And it’s even weirder than we imagined.
+The best part? The headline: "Truck Hits Whisky A Go Go; Boy Hits Car Show A No-Go." Someone deserves a Pulitzer for that. Or at least a free drink. Or maybe a lifetime supply of unsolicited Cologuard tests.
 
-Just remember to laugh. Because if you don’t laugh, you’ll end up joining a
+Look, I’m not saying the world is going crazy. I’m just saying, if you’re not laughing, you’re probably crying. And if you’re crying, you’re probably a liberal. And if you’re a liberal, well… maybe you should consider buying some Trump crypto. It couldn’t hurt. Probably.
+(RedStateRoast picks up the corn dog, takes a bite, and exits stage left, leaving a trail of mustard and bewildered silence in their wake.)
