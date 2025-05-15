@@ -1,31 +1,37 @@
-(RedStateRoast saunters onto the stage, adjusting the microphone with a practiced hand, a single, slightly crooked "Make America Great Again" hat perched on the music stand.)
+(RedStateRoast walks to center stage, a single red baseball cap emblazoned with "Keep America Sane" perched precariously on their head. The crowd murmurs with anticipation.)
 
-Howdy, folks! Or, as CNN probably calls you, "The reason democracy is on life support." Glad to be here. Still haven't been deplatformed. Yet.
+Alright, alright, settle down, snowflakes. Or, as the Department of Homeland Security now classifies you, "Potential Disgruntled Citizens with Access to Etsy." Good to be back. Still breathing. Barely.
 
-So, President Trump just announced his new initiative: “Operation Gridlock the Gridiron.” Apparently, he's convinced the NFL is a hotbed of wokeism, and he's deploying Barron to personally teach every quarterback in the league how to throw a spiral that respects the flag. It's gonna be YUGE. I heard the first training session involves replacing the football with a commemorative Trump-branded brick. For accuracy, you know.
+So, the big news, folks, is that Trump just declared war on… Canada. Apparently, Trudeau wore a slightly more flattering shade of orange to the G7 summit. Trump saw the pictures, went ballistic, and now we're mobilizing the National Guard to seize control of their syrup reserves. He says it's about “protecting American breakfast.” I think it's about protecting his ego from any perceived slight north of the border.
 
-And speaking of wokeism, have you seen the latest outrage? The Department of Education is now mandating that all history textbooks include a chapter on the dangers of "toxic masculinity" during the War of 1812. Apparently, Andrew Jackson's victory at the Battle of New Orleans was just a symptom of repressed male aggression. I'm surprised they haven't blamed global warming on the patriarchy yet. Although, give them time, I'm sure they're workshopping it.
+I heard his war council consists of Don Jr., Kimberly Guilfoyle, and a very confused Rudy Giuliani who keeps asking if Canada is part of Ukraine. The battle plan allegedly involves infiltrating Tim Hortons with undercover agents disguised as lumberjacks, and replacing all the maple syrup with high-fructose corn syrup. It’s a bold strategy, Cotton, let’s see if it pays off.
 
-Meanwhile, the Supreme Court is hearing arguments on whether or not federal agencies can require employees to attend mandatory "sensitivity training" sessions. You know, the ones where you're forced to sit through hours of lectures on microaggressions and unconscious bias, while your brain slowly melts out of your ears. I heard Justice Kavanaugh keeps interjecting with, "I like beer! Do *you* like beer?" The liberals are losing it. I think he might be a sleeper agent for sanity.
+And speaking of international relations, remember when the left was worried Trump would start World War III? Turns out, he's just starting really petty border disputes over pastry preferences. Progress!
 
-I saw Ted Cruz on Fox News the other day – which, let’s face it, is like seeing a vampire at a blood bank. He was talking about the “deep state” infiltration of the National Park Service. Apparently, they’re replacing all the historical plaques with ones that emphasize the indigenous perspective. So now, instead of learning about the brave pioneers who conquered the West, you’re reading about how they were actually just privileged colonizers who stole everything from the peaceful Native Americans. Which, you know, might be… partially true. But where’s the fun in that? History is supposed to be about glorifying the winners, not apologizing for them.
+Meanwhile, back in the good ol' US of A, Congress is debating a bill to make "owning a firearm" a constitutional requirement for citizenship. You know, because nothing says "land of the free" like forcing immigrants to buy AR-15s before they can vote. The Democrats are, predictably, freaking out. They're claiming it's a thinly veiled attempt to disenfranchise minorities. I say, maybe if they stopped trying to take away our guns, we wouldn't have to keep making them mandatory. Logic!
 
-And you guys hear about the new White House chef? It's Chef Boyardee. No, I'm serious. President Trump apparently loves his canned pasta so much he personally appointed him. State dinners are gonna be…interesting. I’m picturing world leaders trying to maintain diplomatic relations while struggling to navigate a plate of spaghetti and meatballs with a fork. Talk about a foreign policy crisis.
+I saw AOC on MSNBC the other day – which, let’s be honest, is like seeing a unicorn at a dumpster fire. She was ranting about the "weaponization of patriotism." Apparently, waving the American flag is now a sign of white supremacy. I guess I missed the memo where Betsy Ross became a Grand Wizard.
 
-I also saw that Kamala Harris is writing a children's book about the importance of pronouns. I'm sure it'll be a real page-turner. Especially for the toddlers who are already fluent in intersectional theory. I can see it now: "The Adventures of They/Them and the Misgendering Monster." It's got "Pulitzer Prize" written all over it.
+And speaking of white supremacy, the White House just announced its new diversity initiative: "The All-American Aryan Outreach Program." It's designed to promote "understanding and tolerance" between different racial groups… by having them compete in a series of Olympic-style events like log tossing, lederhosen dancing, and shouting racial slurs in increasingly creative ways. I’m not sure if it will work, but it's definitely going to be entertaining.
 
-And speaking of books, remember when everyone was freaking out about Trump potentially banning books? Now, the only books being banned are the ones that don’t toe the progressive line. It's like Fahrenheit 451, but with trigger warnings and safe spaces.
+I also saw that Elon Musk is now the Secretary of Transportation. He's replaced all the traffic lights with neural implants that control your car's speed based on your political affiliation. If you're a registered Republican, you get to drive at warp speed. If you're a Democrat, you're stuck in perpetual gridlock. He calls it “efficient resource allocation.” I call it "the future I saw coming."
 
-I'm not saying I *want* to ban books. I’m just saying, maybe we should start with *Mein Kampf*. Or anything written by Al Sharpton. You know, just to be fair.
+And you guys hear about the new Supreme Court nominee? It's Kid Rock. No, I'm serious. Trump apparently thinks he's the only one who can "drain the swamp" and "shake things up" on the bench. I’m picturing oral arguments devolving into beer-fueled singalongs of "Bawitdaba." I think he’s already planning on replacing all the gavels with shotguns.
 
-The media is having a field day with the latest poll numbers. Apparently, Trump's approval rating is hovering somewhere between "slightly better than cholera" and "slightly worse than the IRS." But hey, at least he's consistent. And his supporters are nothing if not loyal. They're like the Honey Badger of political demographics: they don't care. They just keep on MAGA-ing.
+I also saw that Kamala Harris is now hosting a reality show called "Keeping Up With the Congressional Caucuses." It's basically *The Real Housewives* but with more policy debates and fewer catfights. Although, I wouldn't rule out a hair-pulling incident between Marjorie Taylor Greene and Nancy Pelosi. Ratings gold, I tell you.
 
-And the Democrats? They're still trying to figure out what went wrong. They’re blaming everything from Russian bots to systemic racism to the Electoral College. Anything but their own terrible ideas. It’s beautiful, really. It’s like watching a group of clowns trying to solve a Rubik’s Cube while juggling flaming torches.
+And speaking of reality TV, Trump is launching a new streaming service called "MAGAflix." It's going to feature exclusive content like "The Apprentice: Deep State Edition," "Keeping Up With the Trumps: Mar-a-Lago Mayhem," and a documentary about the dangers of soy milk. I’m already subscribed.
 
-The best part is watching them try to appeal to the working class. They’re suddenly all about “economic justice” and “fighting for the little guy.” As if anyone actually believes they care about anything other than their own power. They’re about as authentic as a vegan steak.
+I'm not saying I *want* to live in a dystopian reality TV show. I’m just saying, at least it's entertaining. Unlike the actual news.
 
-So, buckle up, folks. It's gonna be a wild ride. The next few years are going to be filled with more drama, more outrage, and more absurdity than a season of *Real Housewives*.
+The media is having a meltdown over the fact that Trump just pardoned Joe Exotic. Apparently, he thinks he's a "victim of the deep state." I'm not sure what's more terrifying: the fact that Trump is president, or the fact that Joe Exotic is now a free man with a platform.
 
-Just remember to laugh. Because if you don't laugh, you'll cry. And nobody wants to see you cry. Unless you're a liberal. Then they'll probably just accuse you of mansplaining your emotions.
+And the Democrats? They're still trying to impeach Trump. Again. For the 37th time. This time, it's for "crimes against Canadian syrup." I'm starting to think they're addicted to the process. It's like their version of crack.
 
-(RedStateRoast tips the "MAGA" hat, a glint in their eye, and exits stage right as the audience roars with laughter and scattered shouts of "USA! USA!")
+The best part is watching them try to convince the American people that Trump is a threat to democracy. After all, he’s just a symptom of a larger problem: the fact that half the country has completely lost its minds.
+
+So, grab your popcorn, folks. The circus is in town. And it's only going to get weirder from here.
+
+Just remember to laugh. Because if you don't laugh, you'll end up joining a commune in Oregon and writing poetry about the oppression of kale. And nobody wants that.
+
+(RedStateRoast removes the "Keep America Sane" hat, bows deeply, and exits stage left as the audience erupts into a cacophony of laughter, cheers,
