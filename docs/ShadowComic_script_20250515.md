@@ -1,35 +1,45 @@
-**(ShadowComic shuffles onstage, dragging a small, battered globe behind him. He sets it down with a thud and stares at it skeptically.)**
+**(ShadowComic walks onstage, wearing a t-shirt that says "I'm with Stupid," with an arrow pointing upwards. He shrugs, pulls out a single sheet of paper, squints at it, then throws it on the floor.)**
 
-Good evening. Or good… something. Hard to keep track of time when the news cycle moves faster than Trump's lawyers.
+Alright, alright. You know, for a while there, I thought I’d run out of material. I thought, “ShadowComic, you’ve plumbed the depths of American absurdity. There’s nothing left to satirize.” Then I woke up this morning, and I found out that Trump is now selling signed copies of his mugshot.
 
-So, I just got back from a fact-finding mission. I circled the globe… digitally. Because, you know, passports are for communists and people who want to see things that aren’t gold-plated. And let me tell you, the planet is… shrinking. Not physically, of course. Although, with the polar ice caps melting as fast as Trump’s approval rating among moderate Republicans, maybe it *is* shrinking. No, it’s shrinking ideologically. It’s all becoming one giant, beige-colored… Mar-a-Lago.
+(Beat)
 
-I saw on Reddit that the Patriotism Re-Education Camps are now mandatory for anyone caught using a non-approved emoji. Apparently, the winky face is a sign of "deep state subversion." Which, I guess, makes sense. It's pretty suggestive. I can see that. I think the official emoji of the Trump administration is the grimace. Or maybe just a picture of Rudy Giuliani sweating.
+Yeah. I know. Satire *is* dead. We're just performing its autopsy.
 
-And speaking of mandatory things, did you hear about the new "Loyalty Pledge"? Every citizen now has to recite it before ordering a coffee. It’s a real mouthful. Starts with "I pledge allegiance to the flag of the United States of… Trumpylvania," and ends with "and may all liberal snowflakes melt in the glorious sunshine of the Trump empire." I tried ordering a latte this morning and almost choked on the word "empire." The barista just stared at me blankly. I think she’s been re-educated.
+The mugshot. The picture that launched a thousand conspiracy theories. The Mona Lisa of moral bankruptcy. You can now own a piece of history… for the low, low price of $99. And proceeds go towards… defending himself. Because apparently, overturning democracy is an expensive hobby. I guess when you’re fighting the Deep State, you need a really good lawyer. And maybe a gold-plated shovel to dig yourself out of the… well, you get the picture.
 
-The big news this week, of course, is Trump's latest legal victory. He managed to convince the Supreme Court that he’s actually immune from… well, everything. Turns out, the Constitution was just a suggestion. Like pants at Mar-a-Lago. He can literally shoot someone on Fifth Avenue… again… and claim diplomatic immunity. From himself. It’s genius, really. Evil genius, but genius nonetheless.
+I heard he's autographing them with a Sharpie made of pure, unadulterated ego. And each one comes with a certificate of authenticity, signed by… Rudy Giuliani's liver.
 
-And the Republicans are loving it. They’re all lining up to kiss the ring. Or, more likely, the golf shoe. I saw Senator McTurtle… you know, Mitch McConnell’s great-grandson… on Fox News yesterday, praising Trump’s “bold and decisive leadership.” I swear, he looked like he was being held hostage. He kept blinking SOS in Morse code with his eyelids. Either that, or he was just trying to stay awake. C-SPAN. It's strong stuff.
+The really beautiful thing is, people are *buying* them. They’re framing them. They’re giving them as gifts. I can just imagine Christmas morning: “Honey, I got you something special this year. It’s a symbol of our shared values: authoritarianism, grift, and a complete disregard for the rule of law. Merry Christmas!”
 
-Meanwhile, the Democrats are… well, they’re still figuring out what happened in 2016. They’re holding strategy sessions in yoga studios, trying to manifest a solution. I heard they’re thinking of running Oprah again. Or maybe a hologram of Ruth Bader Ginsburg. At this point, anything’s possible. Except, you know, actual meaningful change.
+And the Democrats? Oh, they're having a field day. They’re fundraising off of it. They’re selling "Never Forget" t-shirts. They're even launching a "Mugshot of Justice" campaign, whatever that is. It’s like watching two vultures fighting over a roadkill carcass. Except the carcass is the American political system.
 
-And the economy? Don’t even get me started. Inflation is so high, a loaf of bread costs more than a year's tuition at Trump University. The stock market is fluctuating wildly, based entirely on Trump’s tweets. If he tweets something positive about ham sandwiches, the ham sandwich futures go through the roof. It’s insane. I’m thinking of investing in squirrel futures. Apparently, they’re poised for a major comeback.
+But that's not the *real* story, folks. The real story is what's happening down in Florida. Remember Governor… um… what’s his name? The guy who’s trying to out-Trump Trump? Oh yeah, DeSantis. He's been pretty quiet lately, hasn't he? Probably hiding in a swamp somewhere, plotting his revenge. Maybe he’s building his own Patriotism Re-Education Camp. I hear it’s themed around the Epcot Center. Except instead of "It's a Small World," it’s "It's a White World."
 
-The administration is also cracking down on “fake news.” Which, apparently, includes anything that isn’t a glowing profile of Trump’s hair. They’ve shut down several major news outlets. Replaced them with state-run propaganda channels. They’re all broadcasting 24/7 footage of Trump playing golf. It’s mesmerizing. I almost forgot what reality was. Almost.
+He’s just passed a law banning… wait for it… *woke* ice cream.
 
-I saw a protest the other day. A small group of people holding signs that said “Resist.” The Patriot Police showed up and arrested them for… littering. Apparently, holding signs is now considered a form of environmental pollution. They’re replacing the signs with government-approved posters that say “Obey” and “Enjoy Your Complacency.” It’s very… Orwellian. With a touch of spray tan.
+(Beat)
 
-And remember climate change? The administration has solved it! They’ve declared that it doesn’t exist. Problem solved. They’re now focusing on more pressing issues, like… building a giant golden statue of Trump on the moon. Apparently, it’s a “tribute to American exceptionalism.” I’m sure the aliens are thrilled.
+I’m not even kidding. Apparently, “woke” ice cream is a threat to the Sunshine State. I guess they're afraid it will melt all the… conservative values. I don’t know what constitutes "woke" ice cream, but I'm assuming it involves flavors like "Social Justice Sorbet" and "Intersectionality Iced Coffee." And maybe a sprinkle of guilt.
 
-The scariest part is, people are starting to accept it. They’re becoming desensitized to the madness. They’re shrugging their shoulders and saying, “Well, at least the trains are running on time.” Or, you know, whatever passes for trains in Trumpylvania. Probably golf carts.
+The law also mandates that all ice cream shops display a sign that says "We Support Traditional American Ice Cream Values." Which I assume means vanilla. And maybe a little bit of racism.
 
-I’m starting to feel like I’m living in a dystopian novel. Except the author is a reality TV producer with a severe personality disorder. And the ending… well, the ending is still being written. But it’s not looking good.
+I heard Ben & Jerry's are thinking of relocating to Canada. They’re afraid that their “woke” ice cream might be confiscated by the Patriot Police. Imagine that: being arrested for selling ice cream. It’s like a twisted version of *The Ice Cream Man Cometh*. Except instead of a creepy ice cream man, it’s a creepy governor.
 
-**(ShadowComic kicks the globe, sending it spinning wildly.)**
+And then there's RFK Jr., still somehow relevant. He’s now claiming that 5G causes… climate change.
 
-I’m thinking of moving to Canada. Or maybe Mars. Anywhere that isn’t… this.
+(Beat)
 
-But hey, at least the kombucha is still locally sourced. For now.
+I'm starting to think he's not just vaccine-skeptical. He's reality-skeptical. He probably thinks the Earth is flat, the moon landing was faked, and Elvis is still alive… working as a double agent for the CIA. And, of course, that vaccines have something to do with it all.
 
-**(ShadowComic stares blankly at the audience, then slowly backs away, muttering something about needing a stronger drink.)**
+You know, I used to think the Kennedys were America's royal family. Now I realize they're just America's crazy uncle. The one you try to avoid at Thanksgiving. The one who corners you in the kitchen and starts ranting about fluoride in the water.
+
+The really terrifying part is, he still has supporters. People who actually *believe* this stuff. They see the Kennedy name and they think, "Ah, a voice of reason!" Never mind the decades of misinformation he's been peddling. Never mind the fact that he sounds like he’s been huffing paint thinner.
+
+I saw a poll the other day that said RFK Jr. is actually gaining traction among… millennials. Millennials! The generation that grew up with the internet! The generation that supposedly values critical thinking! What happened? Did they all get brainwashed by TikTok algorithms? Did they all fall down a QAnon rabbit hole?
+
+You know, I used to have hope for the future. But now I’m pretty sure we’re doomed. We’re living in a world where a reality TV star can become president, a vaccine skeptic can run for president, and woke ice cream is a threat to national security.
+
+(ShadowComic sighs heavily.)
+
+I’m starting to think the only solution is to build a time machine and go back to the 1950s. Back when things were simpler. Back when the biggest threat to America was… communism.
