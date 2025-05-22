@@ -1,0 +1,41 @@
+**(RedStateRoast strolls onto the stage, wearing a t-shirt that reads, “I’m With Stupid” but the arrow points UP. He sips from a comically large mug labeled "Liberal Tears".)**
+
+Alright, alright, settle down, folks. So, the House Republicans are *still* trying to pass Trump's “Big, Beautiful Bill.” I’m starting to think that’s less a bill and more a cry for help from the GOP's marketing department.
+
+They’re calling it the “One Big, Beautiful Bill Act,” or as I like to call it, “The 'Hope the Checks Clear Before the Economy Collapses' Act of 2025.” And for those of you playing along at home, that's approximately 1,116 pages of pure, unadulterated… well, let's just call it "policy." It includes tax cuts, border security measures, and some surprisingly detailed instructions on how to properly grill a Trump Steak.
+
+Word on the street is that even *Trump* told Republicans to leave Medicaid alone. Folks, when *the guy who wanted to build a wall* is the voice of reason, you know you’ve officially entered the Upside Down.
+
+Which brings me to our former favorite Twitter troll and current chaos agent, Elon Musk. Turns out, his time as head of the Department of Government Efficiency, or DOGE, has ended. It seems like he’s shifting his attention back to his companies, and, I assume, plotting his escape to Mars before the Earth is overrun by illegals and affordable healthcare.
+
+Speaking of government efficiency, has anyone noticed that Homeland Security is also apparently competing for the worst ideas? Their proposal for a reality TV show where immigrants compete for citizenship is just… wow. The working title? "The Gauntlet of Freedom." You’re telling me they can’t find a better use of taxpayer money?
+
+Meanwhile, our friends on the left are busy. A progressive group is now demanding that Senator John Fetterman resign. Apparently, he’s been a little too… moderate for their tastes.
+
+Let’s not forget the always-unhinged Senator Rand Paul is now demanding "repercussions" for spying on Tulsi Gabbard. I mean, I agree with Paul, but then again, I also think that pineapple belongs on pizza, so don't take my word for it.
+
+Of course, even amidst all this chaos, Trump is still finding time to be Trump. He recently ambushed the South African president with videos promoting false claims of a “white genocide.” I know, you might be thinking, "Oh, that’s just Donald being Donald." But here’s the thing: these actions have consequences. Tourists are canceling trips to the US! That’s right, folks. Our president is now so toxic that he’s damaging our economy. You might even say he's single-handedly making America… *less great*.
+
+And you'll never guess who was in the Oval Office that day, watching the whole thing. That's right, Elon Musk. So it's not just *White* genocide that has people cancelling tourism.
+
+By the way, you think that was weird? The White House is also reportedly orchestrating for the President to be ambushed, with a senior justice official saying the plan is to *shame* people the administration doesn't like.
+
+I'd say shame them for the Qatari jet, but it seems like the Qatari royalty is running out of good business models. They *gave* Trump the plane after all, so they must think he's doing a good job.
+
+And what about the money to upgrade the Qatari jet that no one asked for? The Air Force is now being tasked with modifying it, and the estimate is around $1 billion. One. Billion. Dollars. For what? To make sure the First Family can enjoy a gold-plated toilet while they fly around and pretend everything is fine? Nah. It's so that the US can hold onto it, even when Trump gets out of office. The only way that'll be worth it is if the jet is eventually repurposed to launch him into the sun.
+
+**(RedStateRoast pauses, takes a long swig from his mug.)**
+
+You know, sometimes I think we’re living in a reality show where the prize is… well, I have no idea. Because right now, it feels like the only thing we’re winning is a front-row seat to the slow-motion implosion of Western civilization.
+
+Speaking of implosions, the U.S. Institute of Peace... The U.S. *what*? It's a real place, apparently, was recently taken over by DOGE, but a judge ruled the takeover "null and void." So it goes to show, even in the Trump era, you can’t just waltz in and claim ownership of a peace institute. You have to at least *pretend* to want peace first.
+
+**(RedStateRoast shakes his head, a bemused expression on his face.)**
+
+It’s enough to make you want to move to Canada. But then you remember that they have universal healthcare and polite Canadians, and you think, "Nah, I'd rather risk the apocalypse."
+
+**(RedStateRoast shrugs, grins at the audience, and raises his mug.)**
+
+So here's to another week of political madness, folks. May your memes be dank, your conspiracy theories be wild, and your faith in humanity be… well, let's just say, strategically selective.
+
+**(RedStateRoast exits to a mix of applause and nervous laughter.)**
