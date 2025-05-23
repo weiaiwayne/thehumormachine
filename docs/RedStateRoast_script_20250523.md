@@ -1,38 +1,30 @@
-(RedStateRoast strides onto the stage, adjusting his MAGA hat. The backdrop is a poorly photoshopped image of Mount Rushmore with Trump's face replacing Lincoln's. A single spotlight illuminates him.)
+**(RedStateRoast strides onto the stage, a disconcertingly large American flag pin gleaming on his lapel. He leans into the mic, his voice dripping with mock sincerity.)**
 
-RedStateRoast: Well, well, well, look what the cat dragged in. Or, as Biden would say, “Look what… uh… where are we?” Folks, I’m RedStateRoast, and tonight, we’re diving into the swamp so deep, even the alligators are wearing waders.
+Well, folks, another day, another descent into the gloriously stupid. I’m RedStateRoast, and tonight we’re serving up a steaming platter of… *this*.
 
-First up, the House passed Trump's "Big, Beautiful Bill." Now, you might think a bill with that name would include, I don't know, actual beauty? Maybe a clause mandating that AOC get a makeover? Sadly, no. It's mostly just tax cuts for billionaires and Medicaid reductions for… well, everyone else. It’s like a reverse Robin Hood, except instead of stealing from the rich to give to the poor, we're stealing healthcare from the poor to buy Trump another golden toilet.
+(Gestures vaguely at everything.)
 
-And speaking of gold, this bill is so bad, even Lindsey Graham is saying, "Hold on, y'all, maybe we’re being a *little* too generous to the one percent." Lindsey Graham! That's like Satan saying, "Maybe we should dial down the eternal damnation a notch." You know things are dire when *he’s* the voice of reason.
+First up, the Supreme Court. You know, that bastion of impartial jurisprudence where blind justice is only slightly hindered by the fact that at least three justices are currently accepting Venmo requests for favorable rulings. They’ve decided that Trump *can* fire the heads of independent labor agencies. Which, I gotta say, is fantastic news for anyone looking for a new hobby. May I suggest competitive thumb-twiddling? It’s the only job sector growing faster than the national debt.
 
-But the bill’s a lock to pass because nothing unites Republicans like screwing over the little guy, except maybe a photo op with a bald eagle. Or a chance to impeach Hillary… again.
+The Left is losing it, of course. “Tyranny!” they cry. “The end of democracy!” Guys, relax. It's not tyranny. It’s *streamlined* tyranny. Think of it as the Uber Eats of oppression. Just a few taps on your phone, and boom, due process is gone.
 
-Then there's the small matter of Trump wanting to run the country like it's his own personal fiefdom. He wants to fire the heads of independent agencies whenever he feels like it. Now, normally, I'd be all for firing government bureaucrats – especially the ones who keep telling me my carbon footprint is too big. But these are *independent* agencies. They're supposed to be immune to Trump's whims. But not according to our Supremes.
+Speaking of being fired, the nonpartisan Government Accountability Office, bless their bureaucratic hearts, ruled that Trump broke the law by impounding money meant for EV chargers. See, the Green New Deal isn’t dead, it’s just on life support, being administered by a guy who probably thinks an electric car is powered by hamsters on tiny treadmills.
 
-Apparently, Trump can fire anyone he wants, anytime he wants, because in America, the President is King! King… of Bankruptcy, maybe.
+And speaking of hamsters, the North Dakota governor, God love him, accidentally vetoed the state’s *housing* budget. Apparently, he meant to nix a $150,000 grant for a Native American homelessness liaison position. Small typo, really. Just a slight miscalculation in the grand scheme of things. I mean, who *needs* houses when you can have… well, $150,000 less for those pesky Indians who are, after all, homeless anyway.
 
-But the *real* winner of the week is Harvard. Trump tried to ban foreign students from attending, because apparently, smart people from other countries are a threat to… something. I don't know, maybe he thinks they'll teach Barron trigonometry.
+Meanwhile, on Capitol Hill, our fearless leader is back, sweet-talking Republican lawmakers with the subtlety of a rhinoceros tap-dancing in a china shop. He’s pushing his “Big, Beautiful Bill” – a piece of legislation so beautiful, it makes the Mona Lisa look like a rejected Snapchat filter.
 
-Harvard, bless their elitist hearts, immediately sued. I love it, the elites fight the elites. You know, it's hard to pick who to root for when you are a populist. It's like watching two yachts collide. Who cares, just grab the caviar and watch it burn.
+Apparently, it’s so beautiful, even Senate Republicans are having second thoughts. Ron Johnson, Rand Paul, Collins, Murkowski – the usual suspects are “raising alarm bells.” Don’t worry, folks. They’ll cave. They always do. Resistance is futile when the Kool-Aid is spiked with promises of future Fox News appearances.
 
-And a judge, in a stunning display of… doing their job, blocked the ban. So, congratulations, Harvard, you can continue to groom future globalist overlords. Just try to keep them out of our elections this time, okay?
+And speaking of questionable financial decisions, our President is apparently hosting a dinner for investors in his meme coin. A meme coin! In the Oval Office! I haven't seen that much blatant corruption since the last season of “The Real Housewives of New Jersey.”
 
-And you think that is all? Nah, it gets crazier.
+Each seat cost over a million dollars. I guess America really *is* for sale. Just make sure you pay in DogeCoin, because, let’s be honest, the dollar’s probably going to be worthless by next Tuesday anyway.
 
-Trump is now hosting meme coin dinners! Yep, you heard that right. If you want to dine with the President, all you have to do is buy a bunch of his crypto coins. Now, I'm not saying that's corrupt, but it’s definitely a step down from the Lincoln Bedroom. It's a little hard to imagine Abe hosting a DOGE-themed soiree, isn’t it? Also, side note, I didn’t even know Trump had a meme coin. What's next, Trump-branded NFTs? Oh, wait. Never mind.
+And for the grand finale, a real gem: the Trump administration is considering ending production of the penny. Finally! An end to those copper nuisances that clog our wallets and mock our spending power. I say, let’s go all the way. Let’s end production of *all* currency. We can just trade in signed copies of “The Art of the Deal.” They’re about as valuable as Confederate money these days.
 
-And the kicker? The price of admission to this dinner was so high, it averaged out to a million dollars a seat! I could have bought, like, a hundred MAGA hats for that price. Or, you know, paid off my mortgage. But hey, who needs financial security when you can have a photo with the President?
+Oh, and before I forget, shout-out to Ilhan Omar, who, when asked about a fatal shooting near the Israeli Embassy, simply… walked away. I mean, who needs to answer questions when you can just express your feelings through interpretive dance?
 
-The lefties, of course, are losing their minds, calling it unethical. But let's be honest, folks, Trump could sell access to his colonoscopy and his supporters would buy it if it meant owning the libs.
+**(RedStateRoast pauses, takes a long sip from his Trump-branded soda, and sighs dramatically.)**
 
-But, what is really messed up is that that very same week, Kristi Noem declared that Havard worked with the Chinese Communist Party. Now, I have been known to work with some unsavory types, but CCP are usually off limits. It is like an unspoken rule in Washington.
-
-And finally, someone needs to hide his map before Trump starts trying to trade Puerto Rico for Greenland again.
-
-(RedStateRoast takes a long pause, looking directly at the camera)
-
-Look, folks, at least it is entertaining. Think of it like this: we're all living in a reality TV show, and the producers are clearly on crack. But hey, at least the ratings are good, right?
-
-Goodnight, and God bless America. And may God have mercy on our souls.
-(RedStateRoast tips his hat as the spotlight fades. The Mount Rushmore backdrop remains, a silent testament to the absurdity of it all.)
+Folks, I’m starting to think the only thing holding this country together is duct tape and sheer denial. But hey, at least we’re entertaining. Tune in tomorrow, when we’ll discuss why Trump is now personally auditing every Starbucks in the country for signs of “latte-based radicalization.” Good night, and God bless… or at least tolerate… America.
+**(RedStateRoast exits, leaving a trail of vaguely unsettling orange dust.)**
