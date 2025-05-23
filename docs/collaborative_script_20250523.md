@@ -1,29 +1,29 @@
-RedStateRoast: So, I hear Kamala's writing a children's book about the border crisis. It's called "Where Did All the Children Go?" A real page-turner for ages 3 to never!
+RedStateRoast: How about this: the Left's so afraid of Elon Musk having power, they'd rather have Kamala running the country. Talk about a rocket failure.
 
-BlueScream: So, I hear Trump's thinking about renaming the Air Force One to 'Hair Force One'. I guess he wants a plane that's as aerodynamic as his comb-over.
+BlueScream: Alright, folks, buckle up, because the news cycle is spinning faster than Trump's lawyers trying to explain away his latest golf outing.
 
-ShadowComic: So, I hear the White House is now offering tours of the Situation Room. But they make you sign a non-disclosure agreement… in crayon.
+ShadowComic: Well, folks, another day, another headline that makes you want to move to Canada...or maybe just Mars.
 
-RedStateRoast: So, I heard they're finally updating Air Force One. Guess they're adding a bigger TV so Biden can watch reruns of Matlock while Trump's busy making America great again.
+RedStateRoast: Howdy, folks, RedStateRoast here, where we believe the only thing greener than the Green New Deal is the swamp these socialists are wallowing in.
 
-BlueScream: So, I hear Trump’s thinking of adding a new wing to the White House: The Executive Time Capsule. It's just a solid gold room filled with old McDonald's wrappers and Diet Coke cans. Future historians are gonna LOVE that.
+BlueScream: Good evening, folks, and welcome to the apocalypse! Or, as the GOP calls it, "economic opportunity."
 
-ShadowComic: So, I heard the White House is getting a new reality TV show. It's called "The Apprentice: Deep State Edition."
+ShadowComic: Well folks, the clown car's back in town, and this time, it's got rockets.
 
-RedStateRoast: So, I saw Hillary Clinton is writing a new book. I heard it's a thriller about a woman who loses an election and then just... gets over it. Fiction, obviously.
+RedStateRoast: How about this: Harvard's banning foreign students? Is this about safety or just Trump not wanting any competition for Barron at the next Ivy League regatta?
 
-BlueScream: So, I heard Trump's trying to get Mount Rushmore redone. Apparently, four faces just aren't enough to contain his ego.
+BlueScream: Well, folks, buckle up because today's news cycle is brought to you by the letters WTF and the number...well, it's too depressing to say out loud.
 
-ShadowComic: So, I hear they're adding a new wing to the White House. It's just a really, really long escalator for the President to dramatically descend from.
+ShadowComic: Well folks, looks like another day, another circus...and the clowns are running the show.
 
-RedStateRoast: So, I hear they're trying to get Hunter Biden a security clearance. I guess they figure he's already familiar with handling classified materials... the powdery kind.
+RedStateRoast: Howdy, folks, RedStateRoast here, where we like our borders strong and our jokes stronger.
 
-BlueScream: So, I hear Trump's considering renaming Air Force One to "Trump Force One… Again." Apparently, he felt like it wasn't quite gaudy enough the first time.
+BlueScream: Well, folks, looks like Trump's still calling the shots from Mar-a-Lago, even though he’s supposed to be playing shuffleboard.
 
-ShadowComic: So, I hear they're replacing the White House intern program with a "Finders Keepers" scavenger hunt for misplaced federal documents.
+ShadowComic: Well, folks, I see the "adults" are back in charge... of the environmental disaster movie we're all starring in.
 
-RedStateRoast: So, I saw Biden's new memoir is out. It's called "My Time in the Sun"... mostly about the time he napped on the beach.
+RedStateRoast: How about a round of applause for the snowflakes melting faster than the polar ice caps!
 
-BlueScream: So, I heard Trump's portrait is being hung in the National Portrait Gallery. They had to reinforce the wall, apparently. All that… gravitas.
+BlueScream: Well, folks, welcome back to another week of "Is This Real Life or Just a Terrible Dream?"
 
-ShadowComic: So, I hear they’re printing new money now. Instead of "In God We Trust," it says, "Based on a True Story."
+ShadowComic: (Clears throat, adjusts mic) Well, folks, looks like the sun's shining, the birds are singing, and the government's… well, let's just say it's still doing its thing.
