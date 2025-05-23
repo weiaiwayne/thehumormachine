@@ -1,39 +1,32 @@
-**(Opening shot: ShadowComic sits at a dimly lit desk, a single spotlight illuminating his face. He wears a fedora, tilted slightly down, obscuring his eyes. He takes a long drag from a cigarette, the smoke curling upwards.)**
+**(Lights up on ShadowComic, sitting at a desk littered with unpaid bills and rubber chickens. He's wearing a tinfoil hat ironically, because regular tinfoil hats are for *losers*.)**
 
-ShadowComic: Evening, folks. Another day, another existential crisis disguised as ‘news.’
+ShadowComic: Welcome, welcome, welcome to "This Side Up," the only news show brave enough to start every segment with a triple "welcome." It's redundant, sure, but so is most of what comes out of Washington these days.
 
-(He exhales, a faint smirk playing on his lips.)
+So, where do we even begin? Ah, yes. The Supreme Court, that bastion of… *consistency*. They’ve just given our tangerine-tinged leader the green light to fire anyone he doesn’t like from independent agencies. Apparently, the phrase "independent agency" is now just a suggestion, like "eat your vegetables" or "read the Constitution."
 
-So, the House just passed this “BIG BEAUTIFUL BILL.” I'd call it 'creative,' but I’m pretty sure the only thing being created is a bigger deficit and a whole lotta heartburn for the future. Think of it as fiscal liposuction: all the fat is sucked out of essential services and pumped directly into the already engorged arteries of the ultra-wealthy.
+It’s a real profile in courage, this Supreme Court. I mean, who needs checks and balances when you can have unchecked power? Makes things so much easier. Think of all the time we’ll save! No more pesky regulations, no more inconvenient oversight. Just pure, unadulterated… *executive brilliance*.
 
-And to distract you from the fact that your access to, oh, I don’t know, *healthcare* is about to be downgraded to interpretive dance and positive thinking, they’ve thrown in a provision designed to handcuff the judiciary. It's like watching a toddler trying to build a LEGO tower while simultaneously setting the instructions on fire.
+And, in an effort to further streamline things, Congress is considering a bill that would essentially neuter the courts' ability to enforce contempt citations. You know, because holding powerful people accountable is just *so* 2024. I mean, who needs judges when you have… *executive orders*? It's the circle of life, folks. Or, more accurately, the circle of… *despotism*.
 
-Apparently, Trump wants to ensure that no pesky judge can actually *enforce* any rulings against him. I mean, why bother with all that pesky 'checks and balances' stuff? It's so... *old*. So... *democratic*. So... *not very strongman*. I’m pretty sure if you whisper "checks and balances" into Trump's ear, he'll immediately demand someone build a wall around them. Just to be safe.
+(He picks up a rubber chicken)
 
-(He stubs out the cigarette.)
+Speaking of sweeping pronouncements, Trump has declared an "energy emergency." An emergency! Apparently, we're running out of… *energy*. I thought we were running out of *sanity*, but hey, I'm not an expert. He's promising a "Manhattan Project 2" to jumpstart the nuclear industry. Which sounds great, until you remember that this is the same guy who once suggested nuking hurricanes. I'm starting to think his energy policy is just "more explosions."
 
-Speaking of walls, Harvard. Our nation’s intellectual bastion...well, one of them at least until Trump is done with them, is now officially barred from enrolling foreign students. Because, you know, nothing screams "Make America Great Again" like closing our borders to the best and brightest minds. I mean, who needs brainpower when you’ve got… well, let’s just call it “alternative thinking.”
+And because you can't have a good old-fashioned energy crisis without a trade war, Trump is threatening to slap 50% tariffs on the EU. It’s his new favorite weapon. Tariffs for everyone! You get a tariff! You get a tariff! Everybody gets a tariff! And Apple? Don't even get him started on Apple. If they don't start building iPhones in America, he's threatening a 25% tariff. Which, let's be honest, would probably still be cheaper than manufacturing them here. But hey, who needs logic when you have… *nationalism*?
 
-Germany, proving that history really does rhyme, has offered Harvard an “exile campus.” An exile campus! Folks, we’re living in a bad historical fiction novel written by someone who clearly failed high school civics.
+(He throws the rubber chicken in the air and catches it)
 
-And then there’s our buddy, Elon. He said he was stepping back from government involvement. Right. As if a megalomaniac with a Twitter addiction can just *walk away* from power. That’s like saying a toddler will voluntarily hand back a loaded diaper. He’s still pulling strings, still expanding his AI’s influence, all while probably cackling maniacally from his Mars-bound rocket. Or maybe that’s just the sound of his investors’ portfolios plummeting.
+And while the world is teetering on the brink of economic collapse, Trump is hosting a "memecoin dinner." A dinner where the price of admission was… *buying his cryptocurrency*. I'm not sure what's more disturbing: that people are actually buying TrumpCoin, or that they’re willing to pay a million dollars for a rubber-chicken dinner with the guy who's about to render their investment worthless. It's like a reverse Midas touch: everything he touches turns to… *crypto*.
 
-(He leans forward conspiratorially.)
+By the way, where does one find a "tuxedo meme coin gala?" It's like a fever dream of wealth and poor financial decisions.
 
-Here’s the real joke: It’s not just Trump or Elon. It’s the *system* that allows this to happen. It’s the way we’ve normalized absurdity. It’s the fact that we’re all sitting here, watching the slow-motion demolition of democracy and commenting on it like it’s a particularly dramatic episode of *Housewives*.
+And speaking of strange bedfellows, guess who's making a comeback? RFK Jr.! He's teaming up with Trump to "make America healthy again." Which is ironic, considering that RFK Jr. thinks vaccines cause autism. I guess their healthcare plan is just… *ignore science and hope for the best*.
 
-And then, of course, there’s the memecoin dinner. You can pay for access to the leader. Is this the United States of America or a very expensive carnival?
+(He sighs)
 
-(He pauses, letting the silence hang in the air.)
+Look, folks, I know it's bleak. I know it's depressing. But hey, at least we have each other. And rubber chickens. And the faint hope that maybe, just maybe, future generations will look back at this time and think, "Wow, those people were really good at satire."
 
-But hey, at least we’re not talking about [insert name of some forgettable celebrity]. Progress, right?
+And in other news, I'm fleeing the country. For comedic research, of course. Don't want to end up in a re-education camp. I hear they serve *truth serum* these days. And I *hate* the taste of cherry.
 
-Oh, and another thing, they are putting armed security around a nuclear facility. It's like protecting a toddler with a flamethrower, but who am I to question the government?
-
-(He pushes his fedora back slightly, revealing a glint in his eye.)
-
-So, what’s the takeaway? Simple. Buy gold. Learn a foreign language. And for God's sake, start paying attention.
-
-Because folks, the punchline? The punchline is us.
-
-**(ShadowComic flicks off the spotlight, plunging the desk into darkness. Only the faint ember of his cigarette remains.)**
+Good night, and may your memes be ever in your favor.
+**(Lights fade.)**
