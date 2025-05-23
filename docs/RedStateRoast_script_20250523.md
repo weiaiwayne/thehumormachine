@@ -1,53 +1,43 @@
-**(RedStateRoast swaggers onto the stage, sporting a "Keep Calm and Deport Them All" t-shirt and a suspiciously orange tan. He grabs the mic, adjusting it to an aggressive angle.)**
+**(RedStateRoast swaggers onto the stage, wearing a Hawaiian shirt tucked into khakis. He holds a pineapple with an American flag toothpick sticking out of it.)**
 
-Evening, patriots! Or, as they say in Silicon Valley, “Good morning, future overlords!”
+Aloha, patriots! Or as the Left would say, “Greetings, potential climate change deniers!” I’m RedStateRoast, back to decode the latest dumpster fire that is American politics.
 
-**(Beat for awkward laughter)**
+First off, folks, let’s talk about Trump’s “Big, Beautiful Bill.” I mean, what *isn’t* big and beautiful these days? My blood pressure, for one. My student loan debt… oh wait, I paid that off by selling commemorative Trump NFTs, didn’t I?
 
-Folks, it’s Friday. And you know what that means? Time to celebrate the slow, agonizing death of the American Dream! Brought to you tonight by Freedom Eagle Energy Drinks. Because freedom ain’t free, but high fructose corn syrup is!
+This bill is so big, it makes Obamacare look like a pamphlet. It’s so beautiful, it makes AOC’s Green New Deal look like… well, a compost heap.
 
-So, what's been cooking in the swamp?
+And what’s *in* this bill, you ask? Besides enough red tape to strangle a woke mermaid? Well, it seems our fearless leader is slashing Medicaid, because apparently, healthcare is a privilege, not a right. Unless you’re a Qatari prince offering a sweet deal on a gold-plated 757. Then healthcare is… negotiable.
 
-Well, our beloved President, Donald J. Trump, fresh off his Nobel Peace Prize nomination for… uh… successfully negotiating the location of the next Miss Universe pageant…
+The Left is screaming, of course. “People will die!” they cry. As if *that’s* a new concept. Folks, life is terminal. Get over it. Besides, fewer Medicaid recipients means a smaller government, and a smaller government means… well, I'm not sure, but it sounds like freedom to me! It's like Darwinism, but with paperwork!
 
-**(RedStateRoast coughs awkwardly)**
+And to add insult to injury, there is that tiny little note buried on page 756, paragraph 3, section 2, subsection B, entry 4 of the bill, stating that all Federal Courts will now be unable to enforce any contempt citation.
 
-…has been a busy bee.
+Yeah, that's right folks- Trump is straight up trying to make himself king! This is some serious tin-pot dictator shit. I'm starting to think he is reading the playbook for aspiring despots, chapter by chapter.
 
-First, he stormed Capitol Hill, personally lobbying Republican lawmakers. Apparently, threatening to primary them with a rabid chihuahua wasn't enough. Now he's offering them signed copies of "The Art of the Deal" – autographed in gold Sharpie, naturally. Though, knowing Trump, it's probably just Mike Pence in a Trump mask holding a Sharpie.
+But hey, at least we won’t have to listen to those pesky judges telling him what to do, or not do. I don’t know about you, but I’m tired of unelected officials thwarting the will of the… oh, right. We still have elections. For now.
 
-The result? The House passed the "Big, Beautiful Bill." Or as I like to call it, the "Trickle-Up Economics Bonanza!" It’s got tax cuts for the wealthy (because, let’s be honest, they’re just *not* suffering enough), and Medicaid cuts for the poor (because, you know, bootstraps!). They even slipped in tax breaks for gun silencers. Because what says "family values" like making it easier to commit a crime without disturbing the neighbors? Think of it as a “Second Amendment Stimulus Package.”
+And speaking of elections… Trump's hosting another memecoin dinner. Remember that? The one where people are paying a million bucks a plate to chow down with the Donald.
 
-And to ensure the courts don’t get any fancy ideas about stopping this glorious redistribution of wealth, they tucked in a little provision that essentially renders the Supreme Court about as useful as a screen door on a submarine. Can’t enforce contempt citations? What's next, not being able to order lunch? This is how liberty dies: with polite applause and a footnote in a budget bill.
+If you think he's a populist, just remember that the price of admission to his inner circle is now roughly equivalent to the GDP of a small island nation.
 
-The Left, of course, is losing their minds. “Fascism!” they cry. “Tyranny!” Oh, please. It’s just… *efficient* government. Think of it as streamlining the process of turning America into a libertarian paradise, where the only laws are against public urination and not owning a gun.
+That leads me to my next topic- a few brave souls have decided to protest all the tomfoolery. But I have to ask, what is the point? Those people protesting the "million dollar memecoin dinner" are out of their minds, the millions are lining the pockets of Trump! If I was one of those protestors, I'd want a cut!
 
-Speaking of unhinged lefties... Harvard. Oh, Harvard. Apparently, Trump has barred them from enrolling international students. Now, I know what you’re thinking: “But RedStateRoast, aren’t you all about ‘America First’?” Well, yes. But that doesn't mean letting a bunch of commie pinkos from Europe and China come here and… learn things! We need to protect our precious American ignorance from foreign contamination.
+And the news just broke... the protesters were from a local chapter of "Canine Liberation Front". Apparently, they wanted to send a message about the horrible conditions Trump's hair stylist has to endure.
+"She's trapped in a gilded cage!" shouted a protester clad in a dog costume. "We must free the stylist!"
 
-Plus, apparently, Harvard has a "Chinese Communist Party coordination problem." Which I assume means they’re serving kung pao chicken in the cafeteria.
+Look, I support animals. I really do. But isn’t that a bit dramatic?
+It's not like those protesters were going to change anyone's mind. A MAGA head's mind is harder than a petrified pinecone.
 
-And in a move that will surely go down in history, Trump has decided to replace all written transcripts of his remarks with… videos! Because, you know, who needs to *read* when you can just *watch*? It's the dawn of a new era of oratory! Where coherence is optional and autotune is mandatory.
+But don't think for a minute that the Democrats are any better. Did you see that some of them are all in a tizzy because Trump is planning a military parade for his birthday?
 
-**(RedStateRoast pulls out a small, gilded microphone and warbles a few garbled notes.)**
+“How dare he!” they shriek. “It’s so authoritarian!” Oh, please. Like they wouldn’t do the same if they had the chance. Plus, who doesn’t love a good parade? Tanks, jets, those guys in the goofy hats who ride the tiny bicycles… It’s good, clean, American fun! And hey, maybe we can use the parade to “accidentally” annex Canada.
 
-“China! Bad! Make America… great… again! Covfefe!”
+But what is the latest on the world stage? Well, as it turns out, the President of South Africa, Cyril Ramaphosa, had a meeting with Trump, and Trump took the opportunity to… share some questionable information about white genocide in South Africa.
 
-**(He stops, shrugging.)**
+I’m not saying that’s not a problem. But maybe, just maybe, the Oval Office isn’t the best place to air that particular grievance. It’s like bringing up your weird foot fungus at a wedding. There’s a time and a place, people!
 
-See? Just as informative as the real thing!
+And what was the South African president’s response? Something about not having a plane to give Trump. Oh, *snap*. That’s the international equivalent of “bless your heart.” I bet Trump didn’t see that coming. I know what I want on a T-Shirt now "Sorry I don't have a plane to give you"
 
-And the cherry on top of this dumpster fire of a news cycle? Turns out the new head of Social Security, hired straight from Wall Street, had to Google what the job even *was*. Folks, I am not kidding!
+And this is where it all gets confusing... Trump took that joke to heart and now, is now granting aslyum to white South Africans? Can someone *please* tell me, what the heck is going on?
 
-**(RedStateRoast stares blankly at the audience for a moment.)**
-
-I... I got nothing. You can’t satirize reality when reality is already a self-parody.
-
-**(RedStateRoast sighs, shaking his head.)**
-
-You know what? I need a drink. And maybe a citizenship in Greenland.
-
-**(He raises his giant Trump-branded soda cup.)**
-
-To America! May we all live long enough to see it declared a historical reenactment.
-
-**(RedStateRoast exits, muttering about the "woke mind virus" and the rising price of gasoline.)**
+But hey, it’s not all bad news, folks. The Treasury Department is finally considering killing the penny! I say, good riddance. Who needs those little copper nuisances? They clog up our wallets, they weigh down our pockets, and they’re practically worthless. I mean, come on, people! Now, if you
