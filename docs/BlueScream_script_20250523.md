@@ -1,30 +1,33 @@
-**(Opening music stings. BlueScream strides confidently to the mic, wearing a tie seemingly made of shredded dollar bills. He flashes a practiced, slightly unsettling smile.)**
+*(BlueScream, draped in what appears to be a repurposed "Don't Tread On Me" flag sewn into a cocktail dress, sips from a comically oversized "I ❤️ Tariffs" coffee mug)*
 
-Alright, settle down, you beautiful basket cases. Let’s dissect the… *gestures grandly* …state of things, shall we? It’s like a Jackson Pollock painting made of pure, unadulterated chaos.
+**BlueScream:** Greetings, fellow Americans! Or, as we’re increasingly being called by the rest of the world, “That Place You Used To Visit on Vacation… Before.”
 
-So, Trump’s domestic policy bill – the “Big, Beautiful Bill,” or as I prefer to call it, the “Billionaire Bailout Bonanza” – passed the House. By one vote! That’s right, democracy almost functioned. Almost. It was like watching a toddler try to defuse a bomb. Close, but ultimately, someone's gonna get messy.
+So, another week, another deluge of… *gestures vaguely at a screen flashing headlines* …this. I’m starting to think the only thing keeping this country afloat is the sheer gravitational pull of Trump's ego. It's like a black hole of self-aggrandizement, bending reality itself.
 
-The bill is now heading to the Senate, where it will either be passed, filibustered into oblivion, or, most likely, used as a weapon in a bizarre TikTok dance challenge. Stay tuned!
+Speaking of bending reality, did you catch the latest from the House of Representatives? They finally passed Trump's “Big, Beautiful Bill”! And I use the term "bill" loosely. It's more like a ransom note written in crayon, demanding trillions of dollars be handed over to the wealthy in exchange for… well, *something*. They keep saying "something." At this point, I suspect "something" is just a collective delusion, a shared hallucination brought on by prolonged exposure to Fox News and lead paint.
 
-What’s in this so-called bill? Oh, you know, the usual: tax cuts for the wealthy, cuts to Medicaid (because poor people simply *must* stop being so unhealthy, it’s bad for the stock market), and, of course, a provision that effectively neuters the Supreme Court. Apparently, checks and balances are now considered a “liberal conspiracy.” Who knew?
+And the GOP is practically giddy about it! I saw one congressman practically doing cartwheels on the Capitol steps, yelling, “We did it! We made the rich… *richer!* And the poor… *poorer!* It’s the American Dream, baby!” He then promptly tripped and fell into a conveniently placed pile of manure. I’m not saying it was karma, but… well, manure happens.
 
-See, the bill contains a sneaky little clause that says courts can’t use appropriated funds to enforce contempt citations if no security was given. Which, in layman’s terms, means Trump can ignore court orders with impunity. It’s like giving a toddler a nuclear football because, hey, they *look* like they know what they’re doing.
+But the real genius of this bill? They snuck in a little provision that effectively makes Trump… *checks notes* …immune to the courts! I’m not kidding! It's like they’re deliberately trying to trigger a constitutional crisis. It's like watching a group of toddlers playing with a loaded bazooka, except the bazooka is the U.S. government and the toddlers are… well, you get the picture.
 
-And I love the justifications being thrown around. “Oh, we’re just streamlining the government.” “We’re cutting wasteful spending.” Sure, because the best way to save money is to let the President do whatever he wants, consequences be damned. It’s fiscal responsibility, folks! Just ask Marie Antoinette.
+The provision basically says that courts can't enforce contempt citations against the executive branch unless the plaintiffs have posted a bond. Which is like saying, "Sure, you can sue the President for violating the Constitution, but first you have to give us, like, a billion dollars. Just in case you lose. You know, to cover the damages. Like, the emotional distress of being sued by… *you*."
 
-And then there’s the small matter of Trump’s “crypto dinner.” Apparently, if you buy enough of his commemorative meme coins – and I use the word “invest” loosely, unless you’re investing in future regret – you get to dine with the President. For a mere million dollars a plate! It’s like a charity gala, except instead of supporting a good cause, you’re just… *gestures vaguely* … supporting Trump. It's basically legalized bribery, but with blockchain!
+So, yeah, checks and balances? Gone. The separation of powers? A quaint historical footnote. The rule of law? Just a suggestion, really. We’re basically living in a banana republic now, except instead of bananas, we have… Trump Steaks. Still not available, but always discussed.
 
-I can just imagine the conversation at that dinner. “So, Mr. President, about those regulations…” *wink, wink*. “Oh, don’t worry, I’ll equalize things.” *another wink, slightly more menacing*.
+And speaking of questionable decision-making, Trump is now claiming there’s a “white genocide” happening in South Africa. I kid you not. He even showed President Ramaphosa a picture of… *wait for it*… a mass grave in the Democratic Republic of Congo. Because, you know, Africa is just one big, homogeneous blob of tribalism and… uh… *genocide*. It’s all part of his grand plan to “Make America… *uh*… whiter… again!” I think that's what he was *trying* to say, anyway.
 
-And speaking of “equalizing,” Trump apparently thinks he invented the word. Yes, “equalizing.” As in, “evening the score,” “making things fair,” you know, the concept that’s been around since… well, since people started unequalizing things. The man’s vocabulary is a linguistic black hole, sucking in all knowledge and spitting out… *gestures dismissively* … this.
+The sheer audacity of this is breathtaking. It's like watching a guy who’s currently on trial for 91 felony counts lecture someone else on ethics. It’s like listening to a tone-deaf robot sing opera. It’s like… well, it's like everything else that happens in this administration: completely insane, yet utterly predictable.
 
-Meanwhile, the South African President, Cyril Ramaphosa, came to the White House and, in a moment of truly inspired trolling, told Trump he didn’t have a plane to give him. To which Trump, like a petulant child, replied, “I wish you did.” Folks, we are being governed by a toddler with the nuclear codes and a penchant for shiny objects.
+And as if that weren't enough, his newly appointed special envoy claims the deaths are related to "tribalism" and "witchcraft."
 
-And just to sprinkle some extra crazy on top, Trump is now using photos from the Democratic Republic of Congo to prove there’s a “white genocide” in South Africa. It’s like a game of global Mad Libs, where the answers are always racist, misinformed, and utterly baffling.
+"Oh yes," he said. "Tribalism, a very African thing...and witchcraft, where women are forced to dance or something."
 
-And let’s not forget the “Trump Accounts” for newborns. Because nothing says “Welcome to the world!” like saddling a baby with the legacy of Trumpism. It's a great way to indoctrinate kids early.
+Okay, so, what did that guy do? I don't know, but I know he's never met an African.
 
-Finally, it seems the Treasury is putting an end to penny production. Which, honestly, is the most sensible thing this administration has done so far. I mean, who even *uses* pennies anymore? They’re basically tiny copper reminders of our collective economic misery. Plus, now they’re going to be the price of memecoins!
+Meanwhile, back in the U.S., Trump is now demanding that Harvard stop enrolling international students. Because, you know, who needs intellectual diversity when you can have… *checks notes again* …blind loyalty to a reality TV star? It’s all part of his master plan to “Make America… stupider… again!” I think that’s what he was *actually* trying to say this time.
 
-So, yeah. That’s the news. We’re living in a clown show directed by a megalomaniac, written by a team of rabid squirrels, and scored by a kazoo orchestra. But hey, at least it’s never boring.
-**(BlueScream rips off his shredded dollar bill tie, tosses it into the audience, and exits with a weary shrug as the music thunders.)**
+Harvard, naturally, is pushing back. Which, of course, just makes Trump angrier. I’m half expecting him to order a military strike on Cambridge. "Operation Ivy League Liberation" or something equally deranged.
+
+And now, the pièce de résistance: Trump’s inner circle is reportedly upset that he’s not “cashing in” enough on his presidency. I swear, I'm not making this up. They think he’s *undercharging* for access to the Oval Office. I'm picturing a board meeting in Mar-a-Lago, with Trump shouting, “We need to monetize this presidency! We need to auction off pardons! We need to sell naming rights to the White House! It’s going to be the Trump White House, presented by… *checks notes* …Trump Steaks! Still not available, but always discussed!”
+
+And in a final act of pure villainy, they've replaced written transcripts of Trump's speeches with heavily edited videos. Because what's the point of having a president who can barely string together a coherent sentence if you can't manipulate the evidence? Who needs facts when you have… *optics*?
