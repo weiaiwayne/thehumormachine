@@ -1,37 +1,39 @@
-(ShadowComic stands center stage, dressed in full colonial garb, powdered wig slightly askew. He holds a musket loosely.)
+**(Opening shot: ShadowComic sits at a dimly lit desk, a single spotlight illuminating his face. He wears a fedora, tilted slightly down, obscuring his eyes. He takes a long drag from a cigarette, the smoke curling upwards.)**
 
-Evening, loyal subjects. Or, as the newly rebranded Department of Citizen Engagement now calls you, “Units of Societal Productivity.” We’re celebrating Founder's Week, brought to you by *Trump Steaks: Now Available in Limited-Edition Red, White, and Blue Packaging!*
+ShadowComic: Evening, folks. Another day, another existential crisis disguised as ‘news.’
 
-Yes, in between gutting Medicaid and arguing about Greenland – again – we’ve found time to honor the men who, let’s be honest, would be absolutely *horrified* by what we’ve done with the place. Think about it: A bunch of rich white guys, rebelling against tyrannical rule, fighting for the right to self-governance, freedom of expression… You know, all that stuff that’s now considered “woke.”
+(He exhales, a faint smirk playing on his lips.)
 
-(He rests the musket on his shoulder.)
+So, the House just passed this “BIG BEAUTIFUL BILL.” I'd call it 'creative,' but I’m pretty sure the only thing being created is a bigger deficit and a whole lotta heartburn for the future. Think of it as fiscal liposuction: all the fat is sucked out of essential services and pumped directly into the already engorged arteries of the ultra-wealthy.
 
-Speaking of rebellions, the House Republicans, fresh off passing Trump’s “Big, Beautiful Bill” – or, as I prefer to call it, “The Aristocrats: The Legislation” – are now facing a *wave* of primary challenges. Apparently, even in the GOP, there’s such a thing as *too much* sycophancy. It's like a competition to see who can lick Trump's boots the cleanest, and some of these guys are using industrial-strength solvents.
+And to distract you from the fact that your access to, oh, I don’t know, *healthcare* is about to be downgraded to interpretive dance and positive thinking, they’ve thrown in a provision designed to handcuff the judiciary. It's like watching a toddler trying to build a LEGO tower while simultaneously setting the instructions on fire.
 
-And the bill itself? Oh, it's a masterpiece of economic… origami. I mean, who needs a stable healthcare system when you can have lower taxes on tanning beds? It’s like saying, “Sure, your lungs are collapsing, but at least you look good doing it!” And naturally, just to make sure no one escapes from this beige dystopia, there's a hidden provision that effectively neuters the Supreme Court. You know, checks and balances are soooooo pre-industrial revolution.
+Apparently, Trump wants to ensure that no pesky judge can actually *enforce* any rulings against him. I mean, why bother with all that pesky 'checks and balances' stuff? It's so... *old*. So... *democratic*. So... *not very strongman*. I’m pretty sure if you whisper "checks and balances" into Trump's ear, he'll immediately demand someone build a wall around them. Just to be safe.
 
-(He adjusts his wig.)
+(He stubs out the cigarette.)
 
-Meanwhile, our esteemed leader, fresh from inventing the word "equalizing" – which, by the way, has been used for centuries, much like “stable genius” has been used to describe… well, not him – is now embroiled in a controversy over a photo he used to illustrate the supposed “white genocide” in South Africa. Turns out, the photo was actually from the Democratic Republic of Congo.
+Speaking of walls, Harvard. Our nation’s intellectual bastion...well, one of them at least until Trump is done with them, is now officially barred from enrolling foreign students. Because, you know, nothing screams "Make America Great Again" like closing our borders to the best and brightest minds. I mean, who needs brainpower when you’ve got… well, let’s just call it “alternative thinking.”
 
-The DRC! At this point, he’s just picking countries out of a hat. It’s geopolitical Mad Libs! “The [adjective] [nationality] are being [verb ending in -ed] by the [adjective] [nationality] in [random African nation]!”
+Germany, proving that history really does rhyme, has offered Harvard an “exile campus.” An exile campus! Folks, we’re living in a bad historical fiction novel written by someone who clearly failed high school civics.
 
-And just to prove how seriously we take foreign relations, Trump has tapped Charles Kushner, Jared’s dad and convicted felon, to be the ambassador to France. You know, because who better to represent American values than a guy who hired a prostitute to seduce his brother-in-law? It’s like a twisted episode of “Emily in Paris,” only instead of croissants and romance, it’s wiretaps and blackmail. Maybe he can persuade the French by showing them that sex tape that he mailed to his sister in order to intimidate her from testifying!
+And then there’s our buddy, Elon. He said he was stepping back from government involvement. Right. As if a megalomaniac with a Twitter addiction can just *walk away* from power. That’s like saying a toddler will voluntarily hand back a loaded diaper. He’s still pulling strings, still expanding his AI’s influence, all while probably cackling maniacally from his Mars-bound rocket. Or maybe that’s just the sound of his investors’ portfolios plummeting.
 
-Oh, and before I forget, The Trump Administration is planning to send a million Palestinians to... Libya. What could go wrong? It's like, "hey, here's a million new people, deal with it!" Why are we even doing this?
+(He leans forward conspiratorially.)
 
-(He scratches his chin thoughtfully.)
+Here’s the real joke: It’s not just Trump or Elon. It’s the *system* that allows this to happen. It’s the way we’ve normalized absurdity. It’s the fact that we’re all sitting here, watching the slow-motion demolition of democracy and commenting on it like it’s a particularly dramatic episode of *Housewives*.
 
-And as if that weren’t enough, the White House is now replacing transcripts of Trump’s speeches with videos. Because apparently, words are… too complicated. I mean, who has time to *read* when you can just watch a heavily edited montage of the president grunting incoherently while waving his hands? It's leadership through interpretive dance.
+And then, of course, there’s the memecoin dinner. You can pay for access to the leader. Is this the United States of America or a very expensive carnival?
 
-(He sighs dramatically.)
+(He pauses, letting the silence hang in the air.)
 
-But hey, at least we’re “equalizing.” Except, of course, for international students at Harvard, who are now apparently too… international. Trump just banned them from enrolling. Because apparently, the best way to Make America Great Again is to… deport the world's brightest minds? It's like shooting yourself in the foot to win a foot race.
+But hey, at least we’re not talking about [insert name of some forgettable celebrity]. Progress, right?
 
-(He stares blankly at the audience for a moment.)
+Oh, and another thing, they are putting armed security around a nuclear facility. It's like protecting a toddler with a flamethrower, but who am I to question the government?
 
-Look, I get it. It’s all a bit… much. But remember, folks, this is American Exceptionalism in action. We’re not just exceptional; we’re exceptionally creative at finding new and innovative ways to dismantle our own democracy.
+(He pushes his fedora back slightly, revealing a glint in his eye.)
 
-Now if you'll excuse me, I'm off to protest some taxes. "No Taxation With Representation" is now only available in a paid subscription, exclusively on Truth Social. Thank you and goodnight.
+So, what’s the takeaway? Simple. Buy gold. Learn a foreign language. And for God's sake, start paying attention.
 
-(ShadowComic fires the musket into the air, causing the wig to fall off his head. He stares at it blankly, then shrugs and exits.)
+Because folks, the punchline? The punchline is us.
+
+**(ShadowComic flicks off the spotlight, plunging the desk into darkness. Only the faint ember of his cigarette remains.)**
