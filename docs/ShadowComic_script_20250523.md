@@ -1,45 +1,37 @@
-**(Open on ShadowComic, bathed in a sickly orange glow, fiddling with a fidget spinner shaped like a miniature gold toilet. He's wearing a 'Make America Kind Again' hat, ironically.)**
+(ShadowComic stands center stage, dressed in full colonial garb, powdered wig slightly askew. He holds a musket loosely.)
 
-ShadowComic: Good evening, and welcome to another episode of "Surviving Tomorrow, Today." I'm your host, ShadowComic, and I'm starting to think my therapist is charging me extra for ‘trauma exposure therapy’ disguised as a co-pay.
+Evening, loyal subjects. Or, as the newly rebranded Department of Citizen Engagement now calls you, “Units of Societal Productivity.” We’re celebrating Founder's Week, brought to you by *Trump Steaks: Now Available in Limited-Edition Red, White, and Blue Packaging!*
 
-(He flicks the fidget spinner)
+Yes, in between gutting Medicaid and arguing about Greenland – again – we’ve found time to honor the men who, let’s be honest, would be absolutely *horrified* by what we’ve done with the place. Think about it: A bunch of rich white guys, rebelling against tyrannical rule, fighting for the right to self-governance, freedom of expression… You know, all that stuff that’s now considered “woke.”
 
-So, the House passed Trump's "Big Beautiful Bill." I'm not sure if that's the official name or what Trump shouts after a particularly successful colonoscopy. Either way, it's here, it's real, and it's… *bigly bad*.
+(He rests the musket on his shoulder.)
 
-(He raises an eyebrow)
+Speaking of rebellions, the House Republicans, fresh off passing Trump’s “Big, Beautiful Bill” – or, as I prefer to call it, “The Aristocrats: The Legislation” – are now facing a *wave* of primary challenges. Apparently, even in the GOP, there’s such a thing as *too much* sycophancy. It's like a competition to see who can lick Trump's boots the cleanest, and some of these guys are using industrial-strength solvents.
 
-It's so beautiful, in fact, that Republicans had to sneak it through at 1 AM, like a teenager smuggling a glitter-covered unicorn bong into their parents’ basement. They knew it was wrong, but the unicorn… *called to them*.
+And the bill itself? Oh, it's a masterpiece of economic… origami. I mean, who needs a stable healthcare system when you can have lower taxes on tanning beds? It’s like saying, “Sure, your lungs are collapsing, but at least you look good doing it!” And naturally, just to make sure no one escapes from this beige dystopia, there's a hidden provision that effectively neuters the Supreme Court. You know, checks and balances are soooooo pre-industrial revolution.
 
-And what’s in this beautiful package? Tax cuts for the rich, naturally. Because in America, trickle-down economics are like that ex you can’t quit – they’re always promising things will be different this time, even though you know they're just going to leave you with an empty bank account and a vague sense of shame.
+(He adjusts his wig.)
 
-And just to sweeten the deal, they're gutting Medicaid. Because, you know, who needs healthcare when you can have a "Trump Account" for your newborn? It’s a special savings account loaded with $1,000. Enough to cover… *one urgent care visit*. The rest is up to you, little Timmy. May the odds be ever in your favor.
+Meanwhile, our esteemed leader, fresh from inventing the word "equalizing" – which, by the way, has been used for centuries, much like “stable genius” has been used to describe… well, not him – is now embroiled in a controversy over a photo he used to illustrate the supposed “white genocide” in South Africa. Turns out, the photo was actually from the Democratic Republic of Congo.
 
-(He chuckles darkly)
+The DRC! At this point, he’s just picking countries out of a hat. It’s geopolitical Mad Libs! “The [adjective] [nationality] are being [verb ending in -ed] by the [adjective] [nationality] in [random African nation]!”
 
-Meanwhile, Senator JD Vance, the intellectual heir to… *a bag of unsorted Legos*, is out there saying Putin has "re-engineered his entire economy." I guess that re-engineering involves… *annexing washing machines*? Because, let's be honest, if Putin's economy is so strong, why are they still fighting with Soviet-era tanks? It's like showing up to the Indy 500 with a Yugo.
+And just to prove how seriously we take foreign relations, Trump has tapped Charles Kushner, Jared’s dad and convicted felon, to be the ambassador to France. You know, because who better to represent American values than a guy who hired a prostitute to seduce his brother-in-law? It’s like a twisted episode of “Emily in Paris,” only instead of croissants and romance, it’s wiretaps and blackmail. Maybe he can persuade the French by showing them that sex tape that he mailed to his sister in order to intimidate her from testifying!
 
-(He sighs dramatically)
+Oh, and before I forget, The Trump Administration is planning to send a million Palestinians to... Libya. What could go wrong? It's like, "hey, here's a million new people, deal with it!" Why are we even doing this?
 
-And speaking of strong economies, Qatar is offering Trump a "used" 747 as a diplomatic gift. A *used* 747. It's like getting socks for Christmas, except those socks were previously worn by a Middle Eastern monarch, and probably smell faintly of… *intrigue*.
+(He scratches his chin thoughtfully.)
 
-And of course, Trump's still obsessed with Greenland. Apparently, they signed a lucrative minerals deal with Europe. Which is clearly an act of war. I expect a strongly worded tweet… *followed by the annexation of Denmark*.
+And as if that weren’t enough, the White House is now replacing transcripts of Trump’s speeches with videos. Because apparently, words are… too complicated. I mean, who has time to *read* when you can just watch a heavily edited montage of the president grunting incoherently while waving his hands? It's leadership through interpretive dance.
 
-(He leans into the microphone)
+(He sighs dramatically.)
 
-But the real showstopper? The Supreme Court is hearing arguments on birthright citizenship. Because why not? The Constitution is just a *guideline*, people. Like speed limits or basic human decency.
+But hey, at least we’re “equalizing.” Except, of course, for international students at Harvard, who are now apparently too… international. Trump just banned them from enrolling. Because apparently, the best way to Make America Great Again is to… deport the world's brightest minds? It's like shooting yourself in the foot to win a foot race.
 
-And as if that weren't enough, Oklahoma is requiring schools to teach Trump's 2020 election conspiracy theories. So, buckle up, kids! It's time to learn about the *deep state lizard people who stole the election with… Venezuelan voting machines*. It's educational! It’s… *terrifying*!
+(He stares blankly at the audience for a moment.)
 
-(He spins the fidget spinner again, faster)
+Look, I get it. It’s all a bit… much. But remember, folks, this is American Exceptionalism in action. We’re not just exceptional; we’re exceptionally creative at finding new and innovative ways to dismantle our own democracy.
 
-And while all this is happening, the Army is planning a massive military parade in DC. A birthday parade, apparently. Not for Washington, not for Lincoln, but for… *the guy who dodged the draft with bone spurs*. The Golden Knights are even parachuting in to present him with a folded flag. I'm sure the veterans sleeping on the streets will appreciate the… *optics*.
+Now if you'll excuse me, I'm off to protest some taxes. "No Taxation With Representation" is now only available in a paid subscription, exclusively on Truth Social. Thank you and goodnight.
 
-(He stares blankly into the camera)
-
-But hey, at least the show is entertaining, right? Just remember folks, laughter is the best medicine. Except for, you know… *actual medicine*. Which, thanks to this administration, is about to become a luxury only the elite can afford.
-
-(He drops the fidget spinner. It spins to a halt.)
-
-Good night, and may your Xanax prescription be strong. You're gonna need it.
-
-**(The orange light fades to black.)**
+(ShadowComic fires the musket into the air, causing the wig to fall off his head. He stares at it blankly, then shrugs and exits.)
