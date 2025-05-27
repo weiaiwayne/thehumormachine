@@ -48,54 +48,52 @@ Top Comments:
 #### Web Search Summary
 ```
 === TODAY'S POLITICAL NEWS ===
-Today in US politics, President Trump criticized Russian President Vladimir Putin for his actions in Ukraine, calling him "crazy" and stating that Putin is "killing a lot of people." Trump also mentioned that he is considering redirecting $3 billion in Harvard grants to trade schools. Additionally, Joe Biden spoke publicly for the first time since his cancer announcement, and there was a shooting incident in South Carolina that left at least 11 people injured.
+Today in US politics, President Trump has been vocal about his disapproval of Russian President Putin's actions in Ukraine, calling him "crazy" and stating that Putin is "killing a lot of people." Trump also mentioned that he is considering redirecting $3 billion in Harvard’s grants to trade schools. Meanwhile, Joe Biden has spoken publicly for the first time since his cancer announcement, and Trump has been criticized for his Memorial Day message that many feel was self-centered and lacked respect for fallen soldiers. Additionally, there have been reports of escalating legal battles between Trump and Harvard University over the release of student records.
 
 Key Headlines:
 - CNN abruptly stopped for breaking news as Donald Trump explodes at reporter over Ukraine question - The Mirror US
 - Trump lays Memorial Day wreath at Arlington cemetery ceremony - BBC
-- Trump says he is considering giving $3bn of Harvard’s grants to trade schools – US politics live - The Guardian
-- Biden ‘Proof Of Life’ Presidency Plan Exposed In Explosive New Book: Author - HuffPost
-- 'What the hell happened to him?': Trump rebukes Putin after recent Ukraine attacks – video - The ...
+- Trump says he is considering giving $3bn of Harvard’s grants to trade schools – US politics live - T...
 ```
 
 ### Thinking Process
-Okay, here's my analysis of the provided materials and my plan for crafting a new RedStateRoast monologue, building on previous scripts while exploring fresh satirical angles.
+Okay, here's my analysis of the provided materials and my plan for creating a new RedStateRoast script.
 
 **1. Key Themes and Topics:**
 
-*   **Trump's Relationship with Putin:** The "crazy Putin" comments, Russia's response ("emotional overload"), and the general uncertainty of their dynamic is a major theme. Is it a real break, a staged performance, or something else entirely?
-*   **Trump's Budget and Policy Priorities:** The "Big, Beautiful Bill" and its potential cuts to Medicaid, the EPA, and other social programs, contrasted with lavish spending (e.g., the possible gold-plated toilets on the Qatar jet), and the overall impact on the national debt, and new reports from the CBO.
-*   **Trump's Attacks on Institutions:** His ongoing feud with Harvard, threats to defund them, and the larger trend of undermining institutions like the courts and the National Security Council is a recurring theme.
-*   **Immigration and Border Security:** The administration's stance on immigration, deportations, the idea of a reality show for citizenship, and the tension with Venezuela are still very relevant.
-*   **"Wokeness" and Culture Wars:** The focus on cultural issues, particularly related to gender identity, sexuality, and the "left's" language, is a constant undercurrent.
-*   **The Two-Faced Nature of the Political Class:** Republicans are just as if not more evil.
+*   **Trump's Memorial Day "Tribute":** The sheer audacity of Trump using Memorial Day, a day of solemn remembrance, to boast about himself and attack political opponents is ripe for satire. The phrase "I have everything" in the context of honoring the fallen is particularly egregious.
+*   **The "Big, Beautiful Bill" and Medicaid Cuts:** The ongoing struggle to pass this bill, coupled with the admission that it involves significant Medicaid cuts, is a classic example of Republican priorities that can be lampooned. The debate over whether cuts are to the "undeserving" adds another layer of absurdity. The provision to limit courts from enforcing contempt rulings is particularly egregious.
+*   **Trump's Relationship with Putin:** The bizarre dynamic between Trump and Putin continues to be a source of dark humor. Putin calling Trump "crazy" and experiencing "emotional overload" is gold.
+*   **Trump's Obsession with Harvard:** His attempts to redirect Harvard's funding, and the speculation that it's because his son was rejected, are petty and vindictive, perfect for mockery. The targeting of international students is also a sensitive issue that can be approached satirically, while acknowledging the real-world impact.
+*   **The Penny Controversy:** The potential elimination of the penny is a minor issue, but it's a good opportunity to riff on economic anxieties and the absurdity of modern finance.
+*   **The Reality TV Show for Immigrants:** This remains a bizarre and disturbing concept that I can continue to mine for satire. The potential challenges and the sheer inhumanity of it all are still relevant.
+*   **Texas and the Ten Commandments:** Requiring the Ten Commandments in public schools is an easy target for jokes about religious hypocrisy and the culture war.
+*   **Crypto and Trump:** Trump's foray into cryptocurrency is a ripe area for jokes at his expense.
+*   **The Ongoing Culture War and "Wokeness":** The general themes of wokeness, political correctness, and the culture war provide endless fodder for satire, especially when they intersect with other political issues. The "motherhood medal" is a great example.
 
 **2. Alignment with Comedic Perspective:**
 
 These themes align perfectly with my RedStateRoast persona, which thrives on:
 
-*   **Exaggerating Conservative talking points:** I can take real conservative arguments and push them to absurd extremes, revealing their inherent contradictions and hypocrisies.
-*   **Mocking the Left:** Poking fun at "wokeness," identity politics, and perceived liberal overreach is a staple of the RedStateRoast style.
-*   **Satirizing Trump's Personality:** Trump's ego, impulsiveness, and tendency for self-aggrandizement are ripe for comedic exploitation.
-*   **Highlighting Hypocrisy:** Exposing the hypocrisy of both sides of the political spectrum is a key element of the roast.
-*   **Appealing to a "Common Sense" Viewpoint:** The RedStateRoast character often positions himself as a "regular guy" who sees through the "BS" of the political establishment.
+*   **Exaggerated Conservative Rhetoric:** I can take real conservative viewpoints and push them to the extreme, highlighting their inherent contradictions and absurdities.
+*   **Mocking the Left:** I can use these news items to take potshots at liberals, Democrats, and "woke" culture, often by twisting their arguments or portraying them as overly sensitive and out of touch.
+*   **Embracing Conspiracy Theories (with a wink):** I can hint at conspiracy theories without fully endorsing them, playing on the distrust of the government and the media that's common among some conservatives.
+*   **Celebrating "Real America":** I can celebrate traditional American values (often in a tongue-in-cheek way) while contrasting them with what I see as the excesses of modern society.
+*   **Hyperbole and Outrage:** I can use over-the-top language and feigned outrage to create a sense of comedic chaos and absurdity.
 
-**3. Satirical Angles:**
+**3. Satirical Angles I'm Considering:**
 
-Here are some specific angles I'm considering:
-
-*   **The "Putin Breakup":** I can play up the drama of the "breakup" between Trump and Putin, portraying Trump as a jilted lover or a scorned business partner.  The humor can come from exaggerating Trump's hurt feelings and his attempts to "get back" at Putin, maybe through comically ineffectual sanctions, badmouthing the Russian in public, and trying to make it up to him by sending the President a diamond-encrusted golf cart.
-*   **The "Big, Beautiful Bill" as a Ponzi Scheme:** I can satirize the budget as a scam designed to enrich the elite while bankrupting the country, comparing it to a pyramid scheme or a Trump-branded real estate project.
-*   **The Harvard Defunding as a Personal Vendetta:** I can focus on the idea that Trump's attacks on Harvard are motivated by his son's rejection, portraying it as a petty and vindictive act. I will create a "Harvard Rejection Hotline" where people can call to complain about the Harvard agenda.
-*   **The "Reality Show" for Citizenship as a Dystopian Spectacle:** I can exaggerate the absurdity of the reality show concept, turning it into a dark, satirical commentary
+*   **Trump as a Disgruntled Reality TV Star:** I can portray Trump as constantly seeking attention, obsessed with ratings, and unable to handle criticism, similar to a reality TV contestant who didn't win.
+*   **The Hypocrisy of "Family Values":** I can satirize the hypocrisy of politicians who preach family values while engaging in corrupt or immoral behavior.
+*   **The Absurdity of the
 
 ### Generated Script
 ```
-**(RedStateRoast ambles onto the stage, looking deeply tanned and slightly disoriented. He's wearing a "Keep the Penny, Send Them Back" t-shirt.)**
+**(RedStateRoast shuffles onto the stage, looking rumpled and sleep-deprived, clutching a pillow adorned with a picture of Kristi Noem riding a horse.)**
 
-Evening, patriots! Or as they say in the Deep State, "Good evening, potential targets of federal data mining."
+Alright, folks, I apologize for my appearance, but I’ve been up all night trying to decipher Trump’s Memorial Day Truth Social rant. I think I cracked the code. It's a recipe for a new Trump Steak marinade: equal parts vinegar, bile, and pure, unadulterated narcissism.
 
-So, Memorial Day, huh? A solemn occasion to remember our fallen heroes. A day for quiet reflection… which is why President Trump spent it on Truth Social, ranting about “scum” judges and boasting about having “everything.” Apparently, "ama...
+Speaking of crazy, Putin is calling Trump emotionally overloaded. That’s r...
 [Full script available in the HTML version]
 ```
 
@@ -145,48 +143,55 @@ Top Comments:
 #### Web Search Summary
 ```
 === TODAY'S POLITICAL NEWS ===
-Today in US politics, President Trump criticized Russian President Vladimir Putin for his actions in Ukraine, calling him "crazy" and stating that Putin is "killing a lot of people." Trump also mentioned that he is considering redirecting $3 billion in Harvard grants to trade schools. Additionally, Joe Biden spoke publicly for the first time since his cancer announcement, and there was a shooting incident in South Carolina that left at least 11 people injured.
+Today in US politics, President Trump has been vocal about his disapproval of Russian President Putin's actions in Ukraine, calling him "crazy" and stating that Putin is "killing a lot of people." Trump also mentioned that he is considering redirecting $3 billion in Harvard’s grants to trade schools. Meanwhile, Joe Biden has spoken publicly for the first time since his cancer announcement, and Trump has been criticized for his Memorial Day message that many feel was self-centered and lacked respect for fallen soldiers. Additionally, there have been reports of escalating legal battles between Trump and Harvard University over the release of student records.
 
 Key Headlines:
 - CNN abruptly stopped for breaking news as Donald Trump explodes at reporter over Ukraine question - The Mirror US
 - Trump lays Memorial Day wreath at Arlington cemetery ceremony - BBC
-- Trump says he is considering giving $3bn of Harvard’s grants to trade schools – US politics live - The Guardian
-- Biden ‘Proof Of Life’ Presidency Plan Exposed In Explosive New Book: Author - HuffPost
-- 'What the hell happened to him?': Trump rebukes Putin after recent Ukraine attacks – video - The ...
+- Trump says he is considering giving $3bn of Harvard’s grants to trade schools – US politics live - T...
 ```
 
 ### Thinking Process
-Okay, BlueScream reporting for duty. Let's dissect this week's dumpster fire and figure out how to turn it into comedic fuel.
+Okay, BlueScream reporting for duty. Let’s break down this overflowing dumpster fire of news and craft a satirical monologue that will both amuse and terrify.
 
 **1. Key Themes and Topics:**
 
-*   **Trump's erratic behavior and contradictions:** This is the gift that keeps on giving. He's simultaneously "tough on Putin" and undermining Ukraine, praising veterans while cutting their benefits, and decrying corruption while... well, you know. The unpredictability is key.
-*   **The absurdity of Trump's policy proposals:** Cooking classes for diabetics instead of insulin? A "Motherhood Medal" instead of affordable childcare? Purging international students from Harvard? It's like his administration is actively trying to come up with the dumbest ideas possible.
-*   **The GOP's enabling and hypocrisy:** Republicans are falling in line with Trump's agenda, even when it contradicts their stated principles or hurts their constituents. They're also quick to criticize Democrats for the same things they're doing themselves.
-*   **The suffering caused by these policies:** The Medicaid cuts, the attacks on public education, the deportation policies – these aren't just abstract political issues; they're having a real impact on people's lives.
-*   **The rise of authoritarianism and the erosion of democratic norms:** The attempts to undermine the courts, the attacks on the media, the suppression of dissent – these are all signs of a government that's becoming increasingly autocratic.
-*   **The increasing reliance on foreign actors:** It is always about a friend helping a friend. Whether it's Qatar, Russia or the EU.
+*   **Trump's Memorial Day Blasphemy:** The self-aggrandizing Memorial Day speech, complete with boasting and attacks on political opponents, is a goldmine. The contrast between the solemnity of the day and Trump's behavior is ripe for satire.
+*   **The "Big, Beautiful Bill" and Medicaid Cuts:** The constant theme of tax cuts for the rich at the expense of the poor and vulnerable continues. The GOP's insistence on the "moral component" of these cuts is particularly galling.
+*   **Trump vs. Harvard:** The vendetta against Harvard, stemming from a possible rejection of his son or a general disdain for intellectualism, is recurring and absurd. The idea of redirecting funds to trade schools is ripe for class-based satire.
+*   **Trump's Relationship with Putin:** The shifting narrative of Trump's relationship with Putin, from ally to critic, is inherently unstable and darkly humorous. The "emotional overload" accusation adds another layer of absurdity.
+*   **The Crumbling Rule of Law:** From pardoning corrupt officials to undermining the courts and restricting voting rights, the erosion of democratic norms is a constant threat.
+*   **Foreign policy Follies:** The proposed tariffs on the EU and the general chaos in US foreign policy are recurring themes.
+*   **RFK Jr.'s unorthodox medical advice:** The idea that diabetes can be treated with cooking classes rather than insulin is the kind of disconnect from reality that is perfect fodder for satire.
 
 **2. Alignment with Comedic Perspective:**
 
-My comedic perspective is rooted in highlighting the absurdity and hypocrisy of those in power, particularly when their actions have harmful consequences. This week's news cycle is practically tailor-made for that. I like to use satire to expose the disconnect between the rhetoric and the reality of Trump's administration, and to make people laugh (and maybe think) about the issues that are affecting their lives. I also enjoy playing with the persona of BlueScream as a character who is both exasperated and darkly amused by the state of the world.
+My comedic perspective, as BlueScream, is rooted in:
+
+*   **Exaggeration and Absurdity:** Taking real-world events and pushing them to their most ridiculous extremes.
+*   **Dark Humor:** Finding the humor in the darkest aspects of the political landscape.
+*   **Sarcasm and Cynicism:** Expressing a deep skepticism towards those in power and their motivations.
+*   **Pop Culture References:** Weaving in references to movies, TV shows, and internet culture to connect with the audience and highlight the absurdity of the present.
+*   **Character-Driven Commentary:** Using BlueScream's persona – world-weary, exasperated, yet still clinging to a glimmer of hope – to deliver the satire.
+
+The materials align perfectly with this perspective. The Trump administration's actions are already so absurd that it's almost like they're writing the satire for me. The challenge is to find a way to make the commentary even *more* ridiculous and poignant.
 
 **3. Satirical Angles:**
 
-*   **The "Big, Beautiful Bill" as a metaphor for Trump's ego:** It's a massive, overhyped project that's ultimately empty and destructive. I can play with the idea of it being a physical object that BlueScream has to interact with, like a giant, unwieldy prop that keeps falling apart.
-*   **The "Motherhood Medal" as a dystopian reward:** It's a hollow gesture that ignores the real needs of families. I can imagine BlueScream sarcastically presenting a series of increasingly absurd medals for other life events, like a "Participation in the Workforce Medal" or a "Successfully Navigated the Healthcare System Medal."
-*   **The cooking classes for diabetics as a "wellness cult":** I can satirize the administration's reliance on pseudo-science and alternative medicine, and the idea that individual responsibility can solve systemic problems. Maybe BlueScream can try to teach a cooking class using only essential oils and "alternative facts."
-*   **Trump's relationship with Putin as a dysfunctional romance:** I can play up the idea of them as a bickering couple, with Putin alternately praising and scolding Trump like a misbehaving child.
-*   **The "Sentient Toast Coalition" as a symbol of political apathy:** It's a joke, of course, but it also reflects the feeling that nothing really matters anymore. BlueScream can continue to develop this party as a way to explore the absurdity of the political landscape and the challenges of engaging with it in a meaningful way.
-*   **The sheer volume of insane news as a form of sensory overload:**
+Based on the themes and my comedic perspective, I'm considering these satirical angles:
+
+*   **Trump as a Reality TV Star:** Frame the administration as a poorly produced reality show with declining ratings, desperate for new gimmicks and manufactured drama. The "emotional overload" accusation from Putin could be used to portray Trump as a melodramatic contestant on a show he doesn't even understand.
+*   **The Gospel of Trump:** Satirize the quasi-religious fervor of Trump's followers and the ways in which his policies are justified through twisted interpretations of morality. Mike Johnson's "moral component" comments are a key target here.
+*   **The Anti-Intellectualism of the Right:** Mock the disdain for education and expertise, particularly in the context of RFK Jr.'s medical advice and Trump's attacks on Harvard.
+*   **Trump's "Deals" as Extortion:** Highlight the transactional nature of Trump's foreign policy, portraying his "deals" as thinly veiled extortion schemes. The EU tariffs and the reported "give and
 
 ### Generated Script
 ```
-*(BlueScream enters wearing an American flag bikini top, camouflage cargo pants, and a tiara made of tiny, golden toilets. She’s juggling three rubber chickens.)*
+*(BlueScream strides to the microphone, a single boxing glove hanging from her belt loop.)*
 
-Welcome back to *This Is What Passes For Leadership*. I’m your host, BlueScream, still trying to figure out if the Four Horsemen of the Apocalypse accept Amex.
+RedStateRoast, still clinging to the dream that pennies are somehow tied to the gold standard. Bless your heart. You're right, those pennies are going to be melted down alright. We'll be forging tiny gold likenesses of AOC with the phrase "Tax the Rich" inscribed on their backsides. It's a new form of progressive currency: Pocket Change You Can Actually Believe In.
 
-Folks, I’ve had a week. It’s like living in a choose-your-own-adventure novel, where every choice leads to a slightly more terrifying version of our current reality. I tried t...
+And since we are talking economic poli...
 [Full script available in the HTML version]
 ```
 
@@ -236,58 +241,50 @@ Top Comments:
 #### Web Search Summary
 ```
 === TODAY'S POLITICAL NEWS ===
-Today in US politics, President Trump criticized Russian President Vladimir Putin for his actions in Ukraine, calling him "crazy" and stating that Putin is "killing a lot of people." Trump also mentioned that he is considering redirecting $3 billion in Harvard grants to trade schools. Additionally, Joe Biden spoke publicly for the first time since his cancer announcement, and there was a shooting incident in South Carolina that left at least 11 people injured.
+Today in US politics, President Trump has been vocal about his disapproval of Russian President Putin's actions in Ukraine, calling him "crazy" and stating that Putin is "killing a lot of people." Trump also mentioned that he is considering redirecting $3 billion in Harvard’s grants to trade schools. Meanwhile, Joe Biden has spoken publicly for the first time since his cancer announcement, and Trump has been criticized for his Memorial Day message that many feel was self-centered and lacked respect for fallen soldiers. Additionally, there have been reports of escalating legal battles between Trump and Harvard University over the release of student records.
 
 Key Headlines:
 - CNN abruptly stopped for breaking news as Donald Trump explodes at reporter over Ukraine question - The Mirror US
 - Trump lays Memorial Day wreath at Arlington cemetery ceremony - BBC
-- Trump says he is considering giving $3bn of Harvard’s grants to trade schools – US politics live - The Guardian
-- Biden ‘Proof Of Life’ Presidency Plan Exposed In Explosive New Book: Author - HuffPost
-- 'What the hell happened to him?': Trump rebukes Putin after recent Ukraine attacks – video - The ...
+- Trump says he is considering giving $3bn of Harvard’s grants to trade schools – US politics live - T...
 ```
 
 ### Thinking Process
-Okay, ShadowComic is online and ready to dissect this dumpster fire of information. Buckle up, folks, it's gonna be a long night.
+Okay, ShadowComic activated. Let's dissect this dumpster fire of information and craft a monologue that's both scathing and slightly unsettling.
 
 **1. Key Themes and Topics:**
 
-*   **Trump's Contradictory Statements and Actions:** The sheer volume of instances where Trump contradicts himself is staggering. He calls Putin "crazy" while simultaneously undermining Ukraine. He threatens tariffs, then delays them. He talks about honoring veterans while making Memorial Day about himself. The "do as I say, not as I do" hypocrisy is a goldmine.
-*   **The "Big, Beautiful Bill" and its Consequences:** The passage of Trump's tax and spending bill, with its deep cuts to Medicaid and other social programs, is a major throughline. The focus on the bill's impact on ordinary Americans, especially those relying on social safety nets, is ripe for satire.
-*   **The Erosion of Democratic Norms and Institutions:** From attacks on judges and the courts to the undermining of the FDA and the EPA, there's a consistent theme of dismantling the established order. The prospect of a third Trump term, even as Vice President, and the potential collapse of the rule of law are recurring anxieties.
-*   **Trump's Obsessions and Vendettas:** His fixation on Harvard, his son Barron's supposed rejection, and the international students is bizarrely personal. His use of the presidency to settle scores and pursue personal grievances is a recurring motif.
-*   **The Increasing Absurdity of American Politics:** The news cycle is so overloaded with outrageous events that it's becoming difficult to distinguish satire from reality. The sheer level of chaos and dysfunction is almost comical in itself.
-*   **The World's Reaction to the US's Actions:** Other nations and trade blocs are reorganizing trade relations, and some have become more critical of the US.
+*   **Trump's Memorial Day Shenanigans:** The juxtaposition of a solemn holiday with Trump's self-aggrandizement, partisan attacks, and general lack of empathy is ripe for satire. The comment "I have everything" at Arlington is particularly egregious.
+*   **The "Big, Beautiful Bill" and its Consequences:** The focus on Medicaid cuts, the national debt, and the impact on ordinary Americans is a recurring theme. It's the slow-motion destruction of the social safety net under the guise of "making America great."
+*   **Trump's Relationship with Putin:** The increasingly bizarre dynamic, with Trump both criticizing and seemingly beholden to Putin, is a source of dark humor. Putin calling Trump "emotional" is gold.
+*   **Harvard and the International Student Purge:** Trump's vendetta against Harvard, seemingly fueled by his son's rejection and a general distrust of intellectuals and foreigners, is a classic ShadowComic target.
+*   **The Erosion of Democratic Norms:** The recurring motif of Trump ignoring court orders, packing agencies with loyalists, and generally acting like an autocrat is a constant source of unease.
+*   **RFK Jr.'s FDA and Bizarre Health "Solutions":** RFK Jr.’s role in the current administration continues to be a gift that keeps on giving. The idea of cooking classes instead of insulin is not just absurd but also deeply cruel.
+*   **The Unchecked Power of DOGE:** This shadow government group is a new element here that is worth exploring further.
 
 **2. Alignment with Comedic Perspective:**
 
-My comedic perspective, as ShadowComic, is rooted in:
+These themes align perfectly with ShadowComic's established comedic persona:
 
-*   **Dark Humor:** Finding humor in the bleakest aspects of the political landscape.
-*   **Cynicism:** Exposing the hypocrisy and self-serving motives of those in power.
-*   **Absurdism:** Highlighting the inherent ridiculousness of the current situation.
-*   **Social Commentary:** Using humor to critique societal trends and political ideologies.
-*   **Self-Deprecation:** Acknowledging my own weariness and disillusionment with the political process.
-*   **Surrealism:** Making the monologues more absurd, and less reliant on existing as a "news" source.
-
-The materials align perfectly with this perspective. The news provides ample opportunities for dark humor, cynicism, and absurdism. The erosion of democratic norms and the rise of authoritarianism are serious topics, but they can also be approached with a satirical edge that exposes their inherent flaws. The personal obsessions and vendettas of the president are inherently absurd and lend themselves to comedic exaggeration.
+*   **Dark Humor:** The material is inherently depressing, but ShadowComic can find humor in the absurdity of it all, using sarcasm and cynicism to cope with the bleakness.
+*   **Political Satire:** The focus on Trump's policies, his personality flaws, and the hypocrisy of his supporters is prime satirical territory.
+*   **Existential Dread:** The overarching sense of societal decline and the questioning of reality are central to ShadowComic's brand.
+*   **Absurdity and Irony:** The sheer disconnect between the administration's actions and its stated goals is a constant source of ironic humor.
 
 **3. Satirical Angles:**
 
-I'm considering the following satirical angles:
-
-*   **The "Trump as a Toddler" Trope:** Emphasize his impulsiveness, his inability to control his emotions, and his tendency to lash out when he doesn't get his way. Frame his policy decisions as the actions of a spoiled child throwing a tantrum.
-*   **The "Dismantling America" Theme:** Present Trump as a demolition expert, gleefully tearing down the institutions and principles that once defined the country. Use construction metaphors and imagery to illustrate the process of deconstruction. The recent addition of a "Department of Government Efficiency" is almost too perfect.
-*   **The "American Exceptionalism Gone Wrong" Angle:** Highlight the ways in which America's self-image as a beacon of democracy and freedom has been twisted and corrupted. Use patriotic symbols and
+*   **Memorial Day as a Trump Rally:** Imagine ShadowComic delivering a speech *as* Trump, but the speech keeps veering off into tangents about crowd sizes, ratings, and how much better *he* is than the fallen soldiers. "They were very brave, very strong... but were they *this* strong? I doubt it. Sad!"
+*   **"DOGE" as a Tech Bro's Playground:** Play up the idea of DOGE as a secret government agency run by Elon Musk, complete with flamethrowers, Dogecoin-based currency, and a mission to colonize Mars. "We're not just building a new government; we're building a *blockchain-powered* government! It's the future! (Terms and conditions apply. Side effects may include societal collapse.)"
+*   **RFK Jr. as a Wellness Guru from Hell:** Imagine ShadowComic pitching RFK Jr.'s "cooking classes" as a new form of dystopian healthcare. "Forget insulin; learn to bake a gluten-free, organic, paleo-friendly kale loaf! Side effects may include starvation and death, but at least you'll die *clean*."
+*   **The "Big Beautiful Bill" as a Reality TV Show:** Turn the legislative process into a competition, with House Republicans battling each other in challenges like "
 
 ### Generated Script
 ```
-(ShadowComic, tonight dressed as a disheveled history professor with chalk dust smeared on his face and a barely-contained twitch in his left eye, stumbles to center stage, clutching a stack of heavily annotated historical texts.)
+(ShadowComic shuffles onto the stage, wearing a lab coat over his usual rumpled suit. He pushes a shopping cart overflowing with conspiracy theory pamphlets and fluoride-free toothpaste.)
 
-Good evening, students of the… well, whatever *this* is. Tonight, we delve into the cyclical nature of history, specifically how it’s currently vomiting all over our present.
+Alright, alright, settle down, you beautiful, easily manipulated sheeple. Or, as Secretary Noem prefers, “Potential Contestants in the New and Improved Hunger Games: Citizenship Edition!”
 
-(He drops the books with a thud that makes the microphone feedback. He winces.)
-
-Let’s start...
+You know, between RFK Jr. pushing cooking classes over insulin, and the House Republicans gutting Medicaid, it’s getting h...
 [Full script available in the HTML version]
 ```
 
