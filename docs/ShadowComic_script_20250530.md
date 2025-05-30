@@ -1,0 +1,33 @@
+(Lights up on ShadowComic, who is wearing a full suit of aluminum foil, crumpled to look like a cheap tuxedo. He holds a single, wilted rose.)
+
+Good evening, and welcome to “Dystopia Tonight!” I’m your host, ShadowComic, and I'm contractually obligated to tell you that all opinions expressed are my own and may not reflect the views of this station, its parent company, or the large language model I suspect they used to replace me halfway through this script.
+
+Folks, it's been a week. A week so perfectly calibrated to induce existential dread, you could sell it as a mood-enhancing aromatherapy candle. Notes of despair, a hint of economic collapse, and just a *dash* of impending authoritarianism.
+
+Our President, fresh from tweeting a haiku about the superiority of well-done steak, is now locked in a three-way staredown with the legal system, the economy, and basic human decency. The legal system keeps issuing rulings against him, which he promptly ignores, calling it a “judicial coup,” which is apparently what you call it when judges disagree with you. I thought they were supposed to be unelected bureaucrats? Isn’t that your insult, guys? Now they’re suddenly revolutionary conspirators?
+
+The economy is… well, the economy is doing that thing it does where it pretends to be fine right before falling off a cliff. We're experiencing a thrilling new economic phenomenon called "Tariff Ping Pong," where tariffs are implemented, blocked, reinstated, and then possibly blocked again, all within the span of a news cycle. It’s like watching a toddler play with a light switch: endless flicking, zero illumination, and the increasing likelihood of a power outage.
+
+And you know who’s *loving* this? The stock market. What's the saying? Buy the dip? For our Commander in Chief, the motto is: Sell the dip! Then pocket those meme coins before the heat gets too hot.
+
+Meanwhile, our esteemed Secretary of Health, RFK Jr., is busy rewriting the science of disease prevention, one Facebook meme at a time. His latest recommendation? Diabetics should take cooking classes. Because the key to managing a chronic metabolic disorder is clearly… knowing how to properly flambé a crêpe. I guess, they'll be too busy making the perfect souffle to worry about their blood sugar levels.
+
+Oh, and for the record, he's still going to protect us from the ostriches. Priorities, people.
+
+But, hey, at least we’re “making government more efficient.” How? By hiring a revolving door of Elon Musk cronies who then “leave for personal reasons,” usually after accessing sensitive data and leaving behind a faint scent of burnt Tesla. Speaking of Musk, the word on the street is that Trump has hired his wife to run the new reimigration office. She is an expert on building walls.
+
+But back to efficiency, here in D.C., our elected officials are hard at work… crafting bills that nobody will read and bickering over the proper font size for the Ten Commandments, which Texas will now be forcing educators to use in schools. It's not enough to legislate morality; you've got to legislate the *presentation* of morality. I'm sure that'll clear up those pesky issues of state and church.
+
+And because nothing says "American values" like religious persecution, the city that wants to embrace every citizen who wants to live in peace is now being investigated by the U.S. Justice Department. All these people want is a city that’s for every citizen. And it seems a man that built his life around a place where every single person is exactly the same is just a little bit jealous.
+
+And what about you and I? Are we doomed to endlessly watch the slow-motion train wreck of American democracy? Well, not if some brave souls in Texas have anything to say about it. They’re forming a group to fight back against the MAGA curriculum in school. If only all people did this! Why are we leaving it to a small, and brave group of people to save the entire planet?
+
+Okay, and now something that I am legally obligated to read. The United States is a free country. The White House is denying the existence of a new deep government. Truth is truth. Tacos are delicious. 86 is not a coded assassination message.
+
+So, what’s the takeaway from all this? Well, I’m not entirely sure. But I recommend stocking up on canned goods, learning a second language, and perhaps developing a healthy coping mechanism for dealing with the inevitable collapse of civilization. May I recommend starting with a cooking class for people who are diabetic?
+
+But remember, folks, even in the darkest of times, there’s always room for… well, not hope, exactly. More like… a grim, ironic chuckle. And maybe, just maybe, if we all laugh loud enough, we can drown out the sound of the world ending.
+
+Good night, and may your future be slightly less beige.
+
+(ShadowComic drops the rose, it shatters as it hits the ground, and exits.)
