@@ -1,0 +1,25 @@
+**(Lights up on RedStateRoast, looking unusually frazzled. He’s wearing a t-shirt that reads, “I Survived The Algorithm.”)**
+
+Well, howdy folks. It's me, RedStateRoast, coming to you live from… well, wherever the algorithm decides to beam me tonight. Seems like they're cracking down on dissenting opinions, which is ironic, considering my entire career is built on dissenting from dissenting opinions. It’s a dissent-ception, if you will.
+
+This week has been a regular three-ring circus of crazy, hasn't it? President Trump, in a stunning display of self-awareness, told families of war dead "Look at me, I have everything!" That’s right, folks, because what better way to honor the fallen than by reminding everyone how great *you* are? I mean, those soldiers may have given their lives, but did they get a $400 million jet from Qatar? Didn't think so.
+
+And as the world keeps turning, Pete Hegseth is out there, warning our Asian allies about the 'imminent' threat of China. I didn’t know that Pete Hegseth had access to classified intel when I can barely trust him to get through a sentence without slurring his words, but here we are. Pete then reassured everyone that the U.S. would stand by them, which is just what you want to hear from someone who's track record involves more flip-flopping than a beach sandal convention. Frankly, I'd trust a fortune cookie more than a Trump envoy. At least the cookie comes with a vague promise of good luck instead of a vague threat of impending doom.
+
+Speaking of promises, Trump is still insisting that his tariffs are "easy." Easy for whom? Certainly not for the importers suddenly facing a financial haymaker. It’s so easy, in fact, that even *he* can’t seem to keep them straight. Are they on? Are they off? Is this a trade war, or just a very aggressive game of peek-a-boo with the global economy?
+
+And it wouldn’t be a week in the United States of Anarchy without a bit of judicial overreach. This time, a judge has blocked Trump from collecting those tariffs. But what did the Trump administration do? Did it graciously accept the decision? Of course not! They called it a "judicial coup." Real classy, folks. Reminds me of a toddler throwing a tantrum because he didn’t get enough gold-plated blocks.
+
+The Democrats have noticed that Trump is starting to get into their heads so they decided to act. Minnesota’s Governor Tim Walz told the Democrats to "bully the s***" out of Donald Trump, and calls Trump "a cruel man". Look, I'm not usually one to condone name-calling, but, hey, if it gets the libs energized, why not? It’s certainly more effective than whatever strategy they've been using up until now, which seems to involve passive-aggressive finger-wagging and a lot of hand-wringing.
+
+While they're trying to find a new direction, former Congressman Dean Philips slammed his party, accusing them of "constant lying and gaslighting" about Biden's health. I mean, I understand where he's coming from, but like… does he think this will help at all? Sewing more distrust of the Democratic party when we’re sliding into fascism isn’t the moral high ground he thinks it is.
+
+And AOC, bless her heart, wants to be the next Joe Rogan. I’m not sure if this is an attempt to reach a wider audience, or just a desperate cry for attention. Either way, it’s terrifying. I can just imagine it now: "AOC’s Woke Weedcast," where she interviews Bernie Sanders while simultaneously debunking conspiracy theories and rolling a joint the size of a burrito. I’d watch.
+
+Oh, and because we haven't descended far enough into the political abyss, you will never guess what Texas is doing. The Texas Senate is one step closer to requiring the Ten Commandments in public schools. Look. I'm all for having some moral grounding for these kids. But the Ten Commandments? I mean, come on. They're just a list of things you're not supposed to do, like kill and steal and sleep with your neighbor's wife. Talk about a buzzkill. And besides, they're clearly unconstitutional, so why bother? 
+
+But what I am concerned about is that now that they are in the schools they will be graded. Let's just get right to it, we know there will be a "Coveting" section and it will be filled out every week by every single student.
+
+Meanwhile, all the world’s scientists are looking to move elsewhere as US labs are being cut. Well done Trump. A lot of foreign universities are going to be very happy as they scoop up our best and brightest minds. And what are we going to be doing? I don't know. But it is going to be stupid.
+
+And now, time for my weekly reminder to stay safe, stay armed, and stay skeptical. Because in this political climate, the only thing you can really trust is your gut… and maybe a well-regulated militia. Goodnight, and may God have mercy on our souls. Or at least, a decent health insurance plan.
