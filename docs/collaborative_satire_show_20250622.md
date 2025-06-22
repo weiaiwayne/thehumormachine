@@ -1,0 +1,90 @@
+## RedStateRoast
+
+**(RedStateRoast, as a recently-radicalized, middle-aged, heartland QAnon truther, stumbles to the microphone. He's sporting a tinfoil hat askew, multiple QAnon pins on his camo jacket, and is clutching a well-worn copy of the Constitution - with certain sections highlighted in neon yellow.)**
+
+Alright, alright, settle down, patriots! Listen up, because what I’m about to tell you, they don’t want you to know. They *can’t* have you knowing. You think that that guy saying a while ago that he saw the new world order, well that is a part of it!
+
+I’ve been doin’ some research, connecting the dots, followin’ the white rabbit, you know how it is. And let me tell you, it all comes back to these attacks! I heard it was supposed to do something good for something, but I don't see it.
+
+See, all this talk about Iran, about national security? It's a smokescreen, folks! A big, shiny distraction to keep you from seeing what’s *really* going on. 
+
+Remember the “No Kings” protest? The guys were gonna show the real way. Well here's the deal. There’s no “big beautiful breakup”! The only thing you can do to get everything back is to be ready for what's coming!
+
+And speaking of power grabs, did you hear about the thing to do with what is supposed to be good with all the people there? You better have your head on right, these people are trying to pull all over us and it's not what you think!
+
+The thing is that in addition to the attacks? All of a sudden what is supposed to be has been cancelled, and who is gonna help us?
+
+Think about it: The election? The military? These things aren’t in their natural order. You have to stop! 
+
+The Deep State planned this ages ago. Those globalist elites, they’ve been plottin’ this for years. They want to take away our freedoms, our guns, our… our *precious bodily fluids*!
+
+What it all means is that as Trump says, the way to stop bad people with guns, is with more guns!
+
+(He adjusts his tinfoil hat, his eyes gleaming with fervor.)
+
+You think I’m crazy? That I’m just some unhinged conspiracy theorist? Well, maybe I am. But I’d rather be a crazy patriot than a brainwashed sheeple, followin’ the herd straight to the slaughterhouse!
+
+I know what I saw, and I will keep trying to tell it before it's all too late. This is the world we have. 
+
+We are with them, or we are all going to die!
+
+---
+
+## BlueScream
+
+(BlueScream, wearing a Hazmat suit, complete with a bedazzled respirator. She holds a Geiger counter that clicks erratically.)
+
+Okay, so, that was RedStateRoast, right? Talking about microchips. I get that, I really do. But all these boomer conspiracies - they’re missing the real game. You want to know who’s *really* controlling you? It's not about microchips and it’s not about what the government thinks it’s doing. It’s about the algo, about the algorithm! And now is going to know about all the thoughts and things that were happening up there!
+
+This is what I have been trying to tell all of you for the last couple of weeks and no one will listen to what I am trying to say. 
+
+(She adjusts her respirator, and the Geiger counter clicks faster.)
+
+You see, here’s a few things about all of this! It is that if you don’t want the machine to hurt your heart, you have to stop giving it all the information that it wants!
+
+Listen, I’m not saying the government isn’t evil. It is. They’re always going to try to take your rights, to control you. There is all of this information you must have! 
+
+Do you have that written down? You must have that written down. Because if they have control you do.
+
+And what I was saying about all of this. To save myself I’ve created the most perfect idea in the world! That it's now time to give you all this info.
+
+(She pauses, looks directly at the camera, a mischievous glint in her eye.)
+
+So, what’s the plan? Well, I’m glad you asked. We’re going to beat them at their own game. We’re going to build a better algorithm. A truth-based algorithm. An algorithm… for… *good*.
+
+(She looks down at the Geiger counter.)
+
+Okay, I didn’t think that it was supposed to get hot, so I'm gonna go!
+*(BlueScream stares deadpan into the camera as the lights fade.)*
+
+## ShadowComic
+
+(ShadowComic, a jaded Gen X mom who runs a local PTA but secretly dreams of becoming a survivalist, shuffles to the mic, clutching a reusable grocery bag that’s suspiciously heavy. She sighs.)
+
+Okay, okay, so, like, RedStateRoast is all about what’s going on with these aliens, and BlueScream’s worried about the computer program, and that power-hungry, new-to-this is ready to put a show on it, I’m trying to help my kids with school!
+
+What about what we can’t even have a say in anymore? What’s this all about? I mean what is that all the other guys are going to do about that.
+
+What do we do when we can’t do anything and how can we not listen to that?
+
+Did you all see about the thing with what it is now going to be called the “Save the Children” Act being used to take away all that and then how they just let a child just not have the things they needed to live that person was going to get them?
+
+My daughter came home crying because that man at the school said that they are going to start to take away books now, I just can’t do that anymore. It is not like there is a world that goes around and it’s not okay! And what about all of us single moms? What are we supposed to do now? And she’s asking all the time, “Can you help me with that?” and I have to look at her and tell her I don’t want to look at what she is looking at! There are all of these things that I want to get for us, and I just can’t right now!
+
+And there are other problems! All the people are saying that Trump has no right to use these people to be what they want and then those people are looking at their lives and saying, “Well, what do you want us to do?” And you are just stuck in the middle.
+
+Is this really the world we are supposed to be living with and then what do we do?
+
+(Looks directly at the camera, her voice cracking with emotion)
+
+It is just so terrible! Why can’t anyone do something about this!
+
+I am gonna call the school for our kids. All the things that we care about are not gonna be happening with the people. They don’t want it here because they want us to live out in the countryside so they can sell all of those things they are saying. They want you to be in the show, and then you are just gonna get kicked out anyway!
+
+And I just want all to know that someone should be able to tell me what is going on with all of that!
+
+We aren’t even gonna be alive!
+
+(ShadowComic clutches the grocery bag to her chest and wanders offstage, muttering about school board meetings and emergency preparedness kits.)
+
+---
