@@ -1,39 +1,20 @@
-(BlueScream, late 30s, tinfoil hat askew, nursing a White Claw with a thousand-yard stare)
+(BlueScream, in full 'confused dad' mode, adjusts his glasses with a sigh.)
 
-Hey, guys, you seeing this thing with Trump and Iran? Bombs dropping, oil prices spiking, and I'm pretty sure I just saw Mike Lee tweet something about the Book of Revelation. It’s a lot, you know? It's a lot of 'end times' vibes for a Tuesday.
+So, I’m trying to explain this Iran thing to my kids. It's not going well.
 
-Speaking of the GQP, all I'm saying is people who wanted the old way are going to be really upset with our new one.
+I started with Trump, bombing those “nuclear sites” – except apparently, nobody actually knows where the uranium *is*. It's like playing hide-and-seek with a WMD, and everyone’s already given up looking.
 
-But they do have all that information. And you want to know how is bad that it's almost the end times? What has happened? It's only as far as that this is now a new way to start and make new things. 
+My son asks, "Dad, is that like when you lose your keys?"
 
-And those people! I feel bad for them.
+Yes, Timmy, except if I lose my keys, the worst that happens is we're late for soccer. If Trump loses track of 880 pounds of enriched uranium, the stakes are slightly higher. And then the news says the US is asking *China* to stop Iran from closing the Strait of Hormuz.
 
-(Takes a long, slow sip of White Claw)
+Wait, *what*?
 
-Makes you wonder, though, like, are we actually *safer* now? I saw this thing that a twenty-two-year-old is in charge of counter terrorism? No disrespect to the youths, but my dude was probably still figuring out his ramen-to-income ratio like, last week. It also doesn't help that this man won’t even give me a job for any of those things!
+That's like asking your ex-wife to mediate your argument with your *current* wife. It just… doesn't make sense.
+I mean, I get it. China needs oil. We need… uh… *not* $7-a-gallon gas. But still, it’s just an admission that we have no freakin’ clue what we are doing over there.
 
-And people are going to start saying about what you can do and I can't even begin to tell you or even care about it.
+And Marjorie Taylor Greene is suddenly the voice of reason, going "Whoa, hold on, is this a bit much?" It's like finding out your dentist is secretly a vegan chef - something is deeply, profoundly wrong.
 
-You wanna know another thing that these guys did? They did a few things to these people that they didn't need to do because they were already doing great! It's like those people aren't even human!
+So, to recap, we bombed a country, lost the bomb-making stuff, and are begging China to clean up the mess. And this whole thing is supposed to lower *my* gas prices. I could save money on gas if I sold my car and rode a unicycle to work, and frankly, it's starting to sound like the saner option.
 
-(Beat, then leans in conspiratorially)
-
-I'm not sure if all this has been a bad idea and I think that is a good thing! It can get me some money and do things that these guys won't do. 
-
-(Stares into the middle distance)
-
-So, yeah, war with Iran. I guess that means it's time to dust off my old “Duck and Cover” routine. I learned it in elementary school, right after they taught us how to program a VCR. Ah, nostalgia.
-
-I'm not saying they are doing all this to get us all distracted, but it is! I mean how can we even be sure.
-
-You wanna know what has to happen? We just need to go and say that they need to have new faces and be good at doing what they are talking about!
-
-(Beat, a slow smile spreads across her face)
-
-You know what? I think I just figured out my 2028 campaign slogan. "BlueScream: At Least I’m Not a 22-Year-Old in Charge of Counterterrorism.” It's got a ring to it, right? Plus, it’s so easy that even my grandma could understand it. You will understand it, right grandma?
-
-And here I am, wanting to know about all that other stuff when I am running for president! 
-
-Vote for BlueScream, because at least you know I know what I'm doing!
- 
-(BlueScream raises her White Claw in a defiant toast, the tinfoil hat glinting under the harsh light)
+The whole thing is like a bad reality show that we can't turn off. Actually, wait...it's literally the current admin. This world isn't just absurd, it's a flaming bag of dog poop on the doorstep of sanity, that someone decided to set on fire. It's like my son losing my keys, except my kid has the nuclear football.
