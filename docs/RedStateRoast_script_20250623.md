@@ -1,19 +1,18 @@
-(RedStateRoast, as a Gen Z college dropout who is trying to be a comedian, but is just mostly cynical and self-absorbed)
+(RedStateRoast shuffles onstage, wearing a "Don't Tread on Me" Hawaiian shirt. He sighs deeply into the microphone.)
 
-Alright, so listen up, because I swear, this world is just a glitchy video game where the developers have rage-quit. I mean, what is this, 2025? And we're bombing Iran? Again? Seriously, did we not learn anything from history class? I mean, besides how to write a killer essay about the futility of war, right before I failed out of community college?
+Alright, settle down, you beautiful deplorables. Or, as Biden calls you, "lunch."
 
-It’s like, Trump promised no more forever wars, but then some shiny object came along, and BAM! Suddenly we’re dropping bombs like they’re limited-edition NFTs. I saw one headline “Trump says he's open to regime change in Iran, Vance, Rubio say that's not the goal” Like, which is it, guys? Are we liberating or just blowing stuff up? Get on the same page before the world ends, okay?
+So, what’s the latest? Trump bombed Iran. Again. And MAGA's fighting itself like cats in a burlap sack. Marjorie Taylor Greene is suddenly channeling Gandhi, while the rest of 'em are chanting "Bomb Iran back to the Stone Age!" Make up your minds, people!
 
-And you know what really grinds my gears? All these think pieces trying to figure out if Trump is, like, *actually* smart. Like this one that's called ""Trump’s Iran Strikes are Upending Our Sense of What Kind of President He Is "" Dude, he bankrupted a casino! A CASINO! That takes a special kind of talent, okay? It's like failing at a lemonade stand when you have a money tree. 
+You know what this whole thing reminds me of? That time I tried to build a deck in my backyard. Figured, "Hey, I've seen Bob Vila, how hard can it be?" Next thing I know, I'm knee-deep in concrete, arguing with my neighbor about property lines, and the Home Depot guy is looking at me like I'm speaking Klingon. And just like that new deck, this is going to be an expensive, unfinished disaster that everyone avoids.
 
-And, oh my god, don’t even get me STARTED on the economy. Did you see that article where one of those guys said that all of this to do with the war in Iran is gonna skyrocket, and oil prices will hurt people in red states the most? I don’t get it. How does that even work? I am still trying to pay off my student loans. 
+And of course, Democrats are clutching their pearls. “Trump didn’t consult us!” Oh, boo-hoo. You know, it is almost like he doesn’t trust you.
 
-And yet, my dad, bless his boomer heart, is all like, "Well, at least he’s standing up to China." Dude, he's also palming off most of that to China? What do you want from me? 
+But here’s the kicker: turns out Trump launched this whole thing based on… vibes. No intel, just a gut feeling. Like when I bet my entire paycheck on the Cleveland Browns because "I just had a feeling." Folks, that's foreign policy brought to you by the same folks who brought you MyPillow. What could possibly go wrong?
 
-But whatever, I’m not gonna stress about it. I’m just gonna do what I always do: order takeout, binge-watch anime, and pray that the asteroid hits before my next credit card bill is due. And that's the only code. 
+And here's the real head-scratcher. While all this is going on, they said that The House is banning staffers from using WhatsApp because of “security concerns.” I bet you that means MTG can’t co-ordinate her latest conspiracy theories anymore.
 
-And to all of the people that think that is the way this is gonna work? I think you were wrong about the way that is in our heads. But who will we think of now?
+And speaking of what we can do, just as a refresher, the Texas governor vetoed a THC ban! Is this it, are the flood gates opening? But as with all things, there’s another side; 160 Texan faith leaders called the legislation demeaning to religious freedom. Talk about walking a tightrope there!
 
-Oh - Speaking of bad ideas, didn't the RedStateRoast Roast get cancelled? Now I'll never be able to make a quick buck and I'm gonna be stuck writing stand-up. 
-
-Okay wait, I just connected the dots: Trump bombed Iran to distract us from the canceled RedStateRoast Reality show, the circle of despair is complete, time to check out.
+So here we are: We have a nation full of people who are as divided as ever, and a government that is as divided as ever. One thing that you can take from this? At least buy some MyPillows to sleep on at night!
+(RedStateRoast spits into a comically small spittoon and shuffles offstage.)
