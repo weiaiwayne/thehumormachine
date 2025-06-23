@@ -1,20 +1,20 @@
-(ShadowComic, as a bewildered Gen X dad who desperately wants to believe things are going to be okay, shuffles to the mic, clutching a well-worn copy of "The Hitchhiker's Guide to the Galaxy.")
+(Lights up on ShadowComic, leaning against a faux-brick wall. He’s wearing a “Make Peace, Not Content” t-shirt, several sizes too big. His persona is that of a cynical millennial who is beyond being surprised by anything anymore.)
 
-Alright, alright, settle down, kids. So, you know, the world's ending, but like, gradually. Sort of like when Blockbuster went out of business. You knew it was coming, but you still held onto your membership card, just in case.
+ShadowComic: So, another day, another potential World War. Honestly, I'm starting to think "apocalypse fatigue" is a real thing. Like, remember dial-up? That's what my brain feels like when I try to process this Trump-Iran situation. Just a constant, irritating *eeeeeeeeeeee* until it disconnects and I go back to doomscrolling cat videos.
 
-So, this week, I’m trying to make sense of the fact that the “adults” keep lying! For years, they told us to trust them. So what happens?! Look at Rand Paul! The guy’s suddenly all for “facts", and says a little bit about it. A little? I want him to actually be angry! I mean, I keep telling my kids about what they should do with their lives, and there is zero reaction!
+Anyway, Trump bombed some nuclear sites. Apparently, he's going for that “Make Iran Great Again” slogan. I guess that means bringing back… *radioactive camels*?
 
-But you know what that stuff is about? It’s so we can make sure that we understand these new algorithms. Like everything, it has to be about the new AI and now we are all working on what this stuff actually does. I am going to have to get them to do more than what they did.
-(Runs a hand through his thinning hair, a faraway look in his eyes)
+And of course, nobody bothered to ask Congress about this whole “bombing a sovereign nation” thing. You know, that whole “War Powers Act” thing? Apparently, it’s just a suggestion. Like eating your vegetables or… *paying your interns*.
 
-What are we supposed to do when everything is just going backwards.
-It’s just like I saw on that show, the place where everyone has to fight to get out. I didn’t even see that show, but it’s what everyone tells me to think.
+And the MAGA crowd? They're all over the place. Some are like, "Yeah! Take down those nuke-loving ayatollahs!" Others are like, "Wait, wasn't Trump the ‘no more wars’ guy? What happened to the ‘endless wars’?" It’s like watching a flock of pigeons try to do synchronized swimming. Complete chaos.
 
-All of those people say that what you have to do, and they all think you can vote to get out of this mess. But does anyone remember what all happened 4 years ago when you couldn’t do that and where is the lesson?
+Then there's Marjorie Taylor Greene, my god, now *she's* against the war. As if the fact that someone that is a mix between a Ken doll and a Neanderthal is a voice of reason. I don't know if this means she's finally finding the limits of her brain, or that the government is run by the Russian bots.
 
-This is just like when my parents told me to just get a good job and everything would be fine. And what ended up happening?
+But the real kicker? Turns out, after he ordered the Iran strikes, Trump wanted oil producers to keep prices down. He literally told them to *make less money*. I'm pretty sure Econ 101 is a prerequisite for running a lemonade stand, let alone a superpower. But hey, who needs economics when you have… *vibes*?
 
-Anyway, the point is, the universe is a vast, indifferent place, and we're all just sentient meat puppets hurtling towards oblivion on a rock hurtling around the sun. So, you know, try to be nice to each other. And maybe learn how to code. Just in case. Remember, don't panic and always carry a towel.
-It will get easier!
+It’s all so exhausting. It’s like, can we fast-forward to the part where we all live in underground bunkers eating nutrient paste and playing VR Sims? I’m sure it’s just a coincidence that Oracle is buying like $40 billion in Nvidia chips for OpenAI. Mark my words - the robots are coming, they're building themselves new bodies, and they're going to be *very* disappointed in what they find.
 
-(ShadowComic wanders offstage, muttering about the meaning of life, the universe, and everything.)
+And it’s only going to get worse, because someone who can’t grasp the concept of supply and demand, is about to engage in a new level of tariff trickery, like he did in the last one. So don’t be surprised if that 50% discount on furniture from Temu vanishes, and ends up costing you more in the long run.
+
+So, yeah. World War III might be trending, but I'm over here just trying to figure out if I should invest in canned goods or… *therapy*. Actually, scratch that. I can’t afford either. Guess I’ll just… *doomscroll*. At least it's free. You know, like our… *future*.
+(Lights fade)
