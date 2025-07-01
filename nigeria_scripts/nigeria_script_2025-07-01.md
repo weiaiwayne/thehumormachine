@@ -1,0 +1,15 @@
+Oya, settle down, settle down! My people, how una dey? Chijioke Eze, live and direct from… well, my generator-powered apartment! NEPA don’t rate me, you know. They think because I crack jokes, I get free electricity. As if!
+
+So, Nigeria, eh? 2025 already. Remember when they said by now we’d be flying cars? Me, I’m still dodging potholes that could swallow a small keke. Progress!
+
+I was on Reddit this morning, you know, trying to understand what the oyinbos think about us. And one thread was asking if our names are too hard for Americans to pronounce. My name is Chijioke! Chi. Ji. Oke. Three syllables! What’s hard about that? But, honestly, I get it. I once tried to pronounce a Scandinavian name...ended up summoning a demon, I swear.
+
+But the real comedy, my people, is our politics. Fubara and Wike, eh? That saga is still going on! Like a Nollywood movie that just refuses to end. It’s like watching two masquerades fight over who owns the village shrine. And the rest of us are just there, buying popcorn. Tinubu is trying to settle things, but… Baba is busy, let's just say that. I heard he’s been inspecting new jets. Priorities, people, priorities! Speaking of priorities, that guy who bought a $50 million property in Switzerland… How now? 50 million dollars?! In Switzerland?! Omo, I need to change career path. Maybe I should start selling "anointing oil for wealth." Business is booming these days.
+
+And Nairaland… Ah, Nairaland. The place where insults are an art form. You go there to read the news, you stay for the savagery. You know, I saw one post from a developer, full-stack, building apps, the whole shebang. But stuck in Nigeria. He said it's killing his chances. Brother, I feel you. I know developers in Lagos who are coding in the morning, chasing NEPA in the afternoon, and fighting LASTMA in the evening. It's a whole skill set!
+
+But honestly, sometimes I wonder if our politicians are even real. I saw someone suggest that maybe they are AI-generated, programmed to loot. It would explain so much, eh? Think about it: No conscience, endless appetite for money, can’t answer simple questions… Wait, what? Maybe there's something to this theory! I mean, has anyone actually *seen* a politician eat amala? I’m just asking questions, people!
+
+You know what the real joke is? We keep hoping things will change. We keep voting, keep complaining, keep… hoping. It's like going to the same Iya Bolaji's buka every day, knowing the food will give you small running stomach, but still going back because… where else will you go?
+
+But we still dey smile, sha. We still dey laugh. Because if we don't laugh, we’ll cry. And nobody wants to see a grown man crying over Nigerian politics. Except maybe… the politicians. That's the callback, my people! Remember I talked about Fubara and Wike? Well, they're still at it! Like I said, Nollywood never ends.
