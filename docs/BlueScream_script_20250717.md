@@ -1,0 +1,68 @@
+(BlueScream, cynical millennial, nursing a White Claw at the edge of the stage, with a thousand-yard stare)
+
+Okay, alright, settle in, settle in. So, I'm seeing this story about the House Republicans voting to block the release of the Epstein files *again*. Like, seriously? What are they, afraid we’re gonna find out their favorite ice cream flavor? I mean, it’s not like the flight logs aren’t already public. You can find Trump’s name all over those documents. And you are gonna go to jail in the new thing if you don’t. And then maybe everything is not going to be that great.
+
+(Takes a long sip of White Claw)
+
+It reminds me of this one time, right? I was at a party, and this dude kept insisting he wasn’t drunk. But then he tried to juggle pineapples with his feet. So, you know… obvious. That's what it’s like!
+
+And now the media is going to be that and then what will we have, oh yeah you are just gonna be a great guy with all of those things!
+
+(shrugs)
+
+Here's the thing, and why are they doing this after they won over so many people is to run for president in 2028. And I saw that as well.
+
+It's like, if you have nothing to hide, just release the damn files, right? Unless… you *do* have something to hide. In which case, maybe don’t run for president? But hey, what do I know? I’m just a millennial, struggling to afford rent and trying to figure out how to make a living wage creating this content
+
+Also, this is a crazy day.
+
+(leans in conspiratorially)
+
+And that’s when it gets weird! Then the new thing will be the reason. So I was on the internet and then I saw that he was gonna put the guy as the thing. Then the world ends but the other side is a thing that might do something. But how? What do we even do. I haven't had a lot of times when I am with the lizard world.
+
+That’s what's it’s going to be like, you guys, I swear it is supposed to all work to try to get the government to say that it is all over.
+
+(BlueScream pauses and starts to think, and then she just looks up and shrugs)
+
+I don’t think that it would all gonna hurt people because it is better for them it be and I think I can say it. I guess just listen to what I did and get it all to change and it all that you can do!
+
+I’m gonna be running for president in 2028! Just to say! I'm so excited and it is gonna be such a great! You won't be sorry at all!
+
+(BlueScream exits)
+
+---
+
+=== 2025-07-16 23:02:48 ===
+
+News Context:
+[Reddit Posts]
+Post: Trump Says He Doesn't Need Supporters Who Want Epstein Files Released
+"I don't want their support anymore!" He said on his failing social media platform.
+
+Top Comments:
+- The cult is cracking
+- I bet he is shitting bricks over this though. He knows this is a line his cult might not cross to be with him.
+- So if they want child rapists brought to justice instead of shielded, he doesn't want their support. Okay....
+- When you lose the QAnon wing...
+- [deleted]
+- I said this in another thread, but I think it’s very difficult for outsiders to grasp just how much his supporters are obsessed with Epstein’s client list. It’s not just a desire to see justice served for the victims, it’s a deeply held belief that the list will finally unlock the truth that the Deep State cabal of globalists are the ones running the world. They think this will reveal all the secret child-eating rituals and satanic ceremonies that are supposedly the cause of all their woes. It goes much deeper than him just hanging out with a pedophile.
+- I think this is because those who actually follow the cult will ignore what happened and keep following him. Those who are truly disturbed and want to look into it may be gone.
+- > The president did not elaborate on why his supporters were being “duped,” but did say that Democrats were responsible for turning the story into a “hoax."
+
+So the only reason he wants to release it is to somehow stick it to Dems?
+- And they'll say "Thank you Daddy"...
+- So he's done with all 12 of them?
+- >“The president did not elaborate on why his supporters were being “duped,” but did say that Democrats were responsible for turning the story into a “hoax.”
+He is literally claiming he has the power to release the proof of his innocence and is choosing not to because it will help the other side.
+
+The mental gymnastics are absolutely astounding.
+- I guess we're getting a "You weren't good enough for me anyway" speech...
+- [deleted]
+- If Trump’s supporters are the “stupid people” who are easily duped by the Democrats, then what does that make Trump?
+- It's not a hoax if there are actual victims.
+
+What a creep.
+- Is he having a stroke in real-time?
+- So if you want the Epstein files released, you're a DEMOCRAT.
+Ok, gotcha.
+- "Hey
