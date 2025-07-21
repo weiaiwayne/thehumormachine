@@ -1,0 +1,17 @@
+Ah, my people, my people! Chijioke is back, hotter than pepper soup on a harmattan morning! How una dey?
+
+So, Buhari don go finally, ehn? Rest in peace to the man, sha. May his journey be smoother than the road Tinubu promised us… wait, that’s not saying much, is it? Because that 30km road wey dem commission out of 750km? E pain me! E pain me like fuel scarcity during December! You see that picture of Tinubu cutting the tape? My brother, na meme material for days! Days, I tell you!
+
+But seriously, the man is gone. Now we’re left with the… well, let’s just call them the current occupants of Aso Rock. I saw on Reddit say dem dey discuss how to handle AI generated content. E be like say dem never see our politicians. Some of their promises are clearly AI generated! "I will eradicate poverty in six months!" Which algorithm wrote that one? Na ChatGPT on expired data bundle?
+
+And Nairaland is on fire, as usual. Fani-Kayode don marry again! Fourth wife o! Baba is collecting wives like ASUU lecturers collect strike action. I just dey wonder, does he have a spreadsheet or something? Na serious organization to manage all that. But then again, maybe he’s got a solid succession plan. After all, in Nigeria, anything is possible.
+
+Then I saw this one, Uzodinma and Otti dey fight over state creation. My question is: create new states for what exactly? So more politicians can chop more money? We need solutions, not subdivisions! Abeg, make dem focus on fixing the ones we already get, before creating more headaches.
+
+Speaking of headaches, I read say Edo governor dey warn Peter Obi! Warn am say make e no enter Edo without permission. Wait, what? Since when did a Nigerian need permission to enter a Nigerian state? Is Nigeria now a gated community? Oga Governor, chill small. You dey act like say you are building your own small fiefdom. Remember say power is transient, ehn? Today you are the governor, tomorrow you are… well, let’s just say you are chilling with your ancestors. No need to create unnecessary wahala.
+
+You know, I was talking to my cousin in the village the other day. He called me, complaining about everything: no light, no water, no good roads. I tell am, "Bro, you voted for this government na! What did you expect?" He just sighed and said, "Chijioke, next time I will vote based on who shares the best rice during campaign season." I nearly cried. Is that what we’ve come to? Rice politics?
+
+But you know what? That Ryan Coogler guy, the Black Panther director… him films dey make serious money for Nigeria. That is the kind of foreign investment we need! No be this one dem dey threaten us with ECOWAS mineral rights. Make dem no come carry all our lithium go give oyinbo people o! We need that lithium for our own electric cars. We go name them "Naija Mobile" and they will break down every five kilometers, but at least na we get am!
+
+And about this US travel ban dem dey threaten us with… I just laugh. Me, I never even reach Murtala Muhammed International Airport before dem don stamp "Rejected" on my passport. So the ban is just formalizing what I already know. But the real joke is, even with the ban, Nigerians will still find a way. We are like water, we will always find a path. We will scale walls, swim oceans, even sneak through the back door with a fake visa printed with AI. Because that's how we roll!
