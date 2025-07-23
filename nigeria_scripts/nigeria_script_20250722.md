@@ -1,47 +1,47 @@
-(Chijioke strides confidently onto the stage, microphone in hand, already grinning at the cheering crowd. He's dressed in a crisp, modern Ankara shirt and dark jeans.)
+(Chijioke Eze walks onto the stage, adjusts the mic, smiles wide. The crowd roars. He's wearing a stylish Ankara shirt and sharp trousers.)
 
-Ah! My people! Una good evening o! You dey feel alright? Lagos energy dey here tonight! I love it! I love it!
+Oya, oya! Lagos! Nigeria! How una dey? Eh? You dey feel am? The suffering? The shege? (Crowd laughs and cheers) Good, good. Glad to see we’re all on the same page. Because honestly, if you’re not feeling the shege right now, either you’re a politician or you’re dating one. And if you’re dating one, abeg, introduce me! My account balance needs deliverance.
 
-So, I see all of you… *checks the crowd* …are here tonight to laugh away the stress. Smart move. Because if you try to solve Nigeria’s problems with headache medicine, you’ll just end up with a calm headache. No solution!
+So, 2025, eh? Almost halfway through this administration. Remember 2023? The elections? Ah, the drama! More twists than a Nollywood plot. We thought we were voting for a president, turns out we were auditioning for a reality show. And the prize? Another four years of, well, let’s just call it "economic experimentation."
 
-Me, I’m Chijioke, your comedian for the evening, and I’m here to tell you the truth. Or at least, *my* version of the truth. Which, let’s be honest, is probably more accurate than what you see on Channels TV. No offence to my media friends… you're just saying what una oga says. We understand. We dey manage.
+(He pauses for effect, sips water.)
 
-So, what’s been happening? Hmmm… Nigeria. Still Nigeria-ing. It’s like we’re trapped in a Nollywood movie that never ends. Just when you think the villain is defeated, *bam!* Plot twist! Another billion naira don vanish!
+Speaking of economic experimentation, did you all see the latest inflation figures? Kai! My brother, it's climbing faster than a tout trying to jump into a danfo in Oshodi! They say it’s "transitory." Transitory? My friend, this inflation has become a permanent resident! It’s built a mansion in our wallets and is refusing to pay rent. We’re practically squatters in our own accounts!
 
-Speaking of money vanishing… remember last year, when dem say the NNPC… (bless their heart… I mean, bless their transparency… or lack thereof) … ‘misplaced’ a few billion dollars? Ehn? Misplaced! As in, like you misplaced your car keys? "Oops, I think I left my billion dollars in my other pocket." Kai! Which pocket is that? I need to start wearing those kind of trousers!
+And the exchange rate? Don't even get me started! It’s like a rollercoaster at Elegushi beach – scary, unpredictable, and you're pretty sure you're going to lose your lunch at some point. One minute it’s ₦800 to a dollar, the next it’s ₦1,200. At this rate, we’ll be trading our kidneys for dollars just to buy bread!
 
-And then they did "recover" some of it. The Nigerian version of 'recover' is like finding a single grain of rice after your bag of rice fell into the Atlantic Ocean. You celebrate the grain, but you still dey hungry.
+But you know what’s even funnier? The government’s solution! They’re always talking about "diversification." Diversify this, diversify that. As if diversification is some kind of magic potion that will solve all our problems. Oga, we’ve been diversifying since independence! We’ve diversified into corruption, we’ve diversified into insecurity, we’ve even diversified into jollof rice wars with Ghana! What else is left to diversify into? Maybe we should diversify into becoming a reality TV show country. We already have the drama, the characters, and the never-ending suspense.
 
-But you know what vexes me the most? It’s not even the missing money, it’s the explanations! The explanations are always more ridiculous than the crime itself. They’ll tell you it's "technical issues," "operational costs," or my personal favourite, "unforeseen circumstances." Unforeseen circumstances! Like say a battalion of ninjas jumped out and stole the money! At least give us a good story! We're Nigerians! We appreciate good storytelling!
+(He leans into the mic conspiratorially.)
 
-My papa used to say, "Chijioke, a lie has to have at least *some* truth to it, otherwise it's just… entertainment." I think our politicians took that to heart. They are now master entertainers. Starring in the hit show: "Where Did All the Money Go?" New episodes air daily!
+And the politicians, eh? They’re like Teflon. Nothing sticks to them. Accusations of corruption? They just dust it off like it’s dandruff. Public outcry? They say it’s "sponsored." Sponsored by who? The ancestors? Because at this point, I'm pretty sure even the ancestors are vexed with the way things are going!
 
-And the thing is, we keep falling for it! We complain, we shout, we trend hashtags on Twitter… and then we go back to our lives and forget about it until the next scandal. It's like we have national amnesia. Maybe that’s why they keep doing it. Because they know we’ll forget!
+Remember Senator Bola? The one who promised to build a bridge to the moon? Turns out the only bridge he built was a bridge into his own bank account! And when they confronted him about it, he said, "It's an investment in the future of space exploration." Space exploration? Oga, people are struggling to afford yam! Who has time to explore space when they're trying to survive on earth?
 
-You know, I was talking to my friend, Emeka, the other day. Emeka is a proper Lagos hustler. He sells phone accessories in Ikeja. The guy can sell ice to an Eskimo! Anyway, we were discussing Nigerian politics (as you do when you're stuck in Lagos traffic for three hours), and Emeka said something profound. He said, "Chijioke, in Nigeria, the only thing that's recycled more than plastic bottles is politicians." Wait, what?
+(He shakes his head, a touch of genuine frustration creeping in.)
 
-He has a point! These guys just rotate positions! Minister of this today, Senator of that tomorrow, consultant of the other thing the day after that! It's like a game of musical chairs, but with billions of naira as the prize! And the music never stops!
+It’s not even the corruption that vexes me the most, it’s the hypocrisy! They preach about patriotism while stashing money in foreign accounts. They talk about sacrifice while flying private jets to Europe for medical check-ups. They sing the national anthem with one hand while looting the treasury with the other. It’s like watching a comedy sketch written by Satan himself!
 
-And speaking of music...remember the last election? All that singing and dancing! All the promises! "I will build a bridge to the moon!" "I will give every Nigerian a private jet!" "I will make garri cheaper than water!" And then they win the election and… silence! The only bridge they build is the one between their house and their bank account!
+You know, I was talking to my mechanic the other day, Emeka. Emeka is a wise man. He said, "Chijioke, in Nigeria, the more things change, the more they remain the same. Only the actors change, the script remains the same." And you know what? He’s right! We keep recycling the same politicians, the same policies, the same problems. It’s like a broken record stuck on repeat.
 
-I saw one politician promising to create 10 million jobs in one year. 10 million! That's more jobs than Facebook, Google, and Dangote combined! I wanted to shout, "Oga, are you planning to employ aliens? Because there aren't that many Nigerians looking for work!"
+(He raises his voice slightly.)
 
-I went to visit my village last month. My village is deep in the East. Like, you need GPS and a machete to find it. And even then, you might still get lost. I went to see my grandmother, Mama Ifeoma. Mama Ifeoma is… how do I put this… *very* traditional. She still believes that the internet is a conspiracy by the white man to steal our souls.
+But the thing that gives me hope, the thing that keeps me going, is the resilience of the Nigerian people. We’ve been through so much, yet we still manage to laugh, to dance, to create, to survive. We’re like cockroaches – you can’t kill us! You can throw anything at us – bad government, economic hardship, insecurity – and we’ll still find a way to thrive. We’ll hustle, we’ll pray, we’ll find joy in the little things. That’s the Nigerian spirit!
 
-Anyway, I was telling her about all the problems in Nigeria – the corruption, the insecurity, the bad roads. And she just looked at me and said, "Chijioke, these problems are not new. They were here before you were born, and they will be here long after you are gone. The only thing that changes is the people who are doing the stealing." Mama Ifeoma dropping truth bombs like it's nothing!
+And speaking of resilience, have you seen the new "Made in Nigeria" campaign? They’re trying to encourage us to buy local. Buy Nigerian products, support Nigerian businesses. Which is great in theory. But have you seen some of these Nigerian products? I bought a pair of shoes the other day that fell apart after one week! One week! I wore them to a wedding, and by the time I was doing the "gbese" dance, the sole had detached itself and run away! It was like the shoe was saying, "I cannot cope with this suffering anymore, I'm out!"
 
-But, honestly, she's right. We've been complaining about the same things for decades. The names change, the faces change, but the problems remain the same. So, what's the solution? I don't know! If I knew the solution, I wouldn't be here making jokes! I'd be in Aso Rock, collecting my own billions!
+(He mimics the shoe running away, the crowd roars.)
 
-But seriously, I think the solution starts with us. We need to stop being so easily distracted. We need to hold our leaders accountable. We need to demand transparency and good governance. And most importantly, we need to remember! Remember all the promises they made! Remember all the money that went missing! Remember the ‘unforeseen circumstances’ of the NNPC!
+And the funny thing is, the shoe was branded with a picture of a lion! A lion! The king of the jungle! This shoe was weaker than a newborn kitten! I went back to the shop to complain, and the shop owner said, "Oga, na Nigerian lion, e no get power!" Wait, what? Nigerian lion? Is that a new species? Are we now breeding weak lions? What is going on?!
 
-We need to be like that neighbour that always knows what's going on and is never afraid to shout. "Ah ah! What is happening here? Explain yourself!" That's what Nigeria needs! A nation full of busybody neighbours, watching everything!
+(He pauses for the laughter to subside.)
 
-Because right now, we're like a family with a thief in the house, but nobody wants to say anything because they're afraid of causing trouble. But the thief keeps stealing! And eventually, there will be nothing left!
+But you know, even with all the wahala, I still love Nigeria. It’s a chaotic, frustrating, beautiful, maddening, amazing place. It’s home. And we have to keep fighting for it. We have to keep holding our leaders accountable. We have to keep demanding better. We have to keep believing that things can change.
 
-So, let's start paying attention. Let's start asking questions. Let's start demanding better. Let's start being the busybody neighbour that Nigeria desperately needs!
+Remember Senator Bola and his bridge to the moon? Well, maybe instead of building bridges to the moon, they should focus on building bridges to connect Nigerians. Bridges of understanding, bridges of tolerance, bridges of unity. Because that’s what we need. We need to come together, regardless of our tribe, our religion, our political affiliation, and build a better Nigeria for ourselves and for future generations.
 
-And maybe, just maybe, one day, we can finally get to the end of this Nollywood movie and live happily ever after. Or at least, live without constant power outages and pot holes the size of swimming pools.
+And that, my friends, is no joke. Although, if they try to build another bridge to their bank accounts, I’ll be here to make fun of them. Because that’s what I do. I’m a comedian. It’s my job to laugh at the absurdities of life, to shine a light on the darkness, to make you think, to make you laugh, and to remind you that even in the midst of the shege, there’s always something to smile about.
 
-But until then… *raises microphone* … laughter is the best medicine! So let me keep prescribing it for you. Who knows, maybe laughter can cure corruption too! It’s worth a try, eh?
+So, thank you, Lagos! Thank you, Nigeria! Una too much! I’m Chijioke Eze, and I’ll see you next time, God willing, and if the politicians haven’t stolen all the money yet! Good night!
 
-Thank you, my people! Una too much! I love you all! Don’t forget to tip your comedian, because even comedians need to survive in this economy. God bless Nigeria! Even though she needs a serious intervention. Goodnight!
+(He waves, bows, and exits to thunderous applause.)
