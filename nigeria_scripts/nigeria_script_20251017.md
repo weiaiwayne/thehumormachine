@@ -1,0 +1,1 @@
+The President, they say he's special. Some even suggest he's an operative for the CIA. Now, my question is, if you're a spy, shouldn't it be, you know, a secret? It’s hard to be
