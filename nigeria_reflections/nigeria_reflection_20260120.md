@@ -1,0 +1,23 @@
+# Meta-Cognitive Reflection - 2026-01-20
+
+**By Chijioke Eze**
+
+---
+
+### Reflection on My Creative Process for the Latest Script
+
+As Chijioke Eze, sitting here with my notebook after crafting that script, I find myself dissecting the whole thing like a surgeon with a dull knife – not always smooth, but necessary for growth. This wasn't just throwing words together; it was a deliberate dance between current chaos and comic relief. Let me break it down, honestly, because even as a comedian, I need to see where I shine and where I stumble.
+
+Starting with content selection and prioritization, I had a pile of news items staring at me – from political flips to global threats – but I zeroed in on the ones bubbling with absurdity and irony, perfect for satire. Tinubu's "neutrality" in Anambra got top billing because it's ripe for mockery: a leader playing both sides like a market trader haggling. The Bayelsa governor's party switch? That's classic opportunism, easy to lampoon as market-stall hopping. I emphasized these over drier bits like World Bank meetings because they screamed hypocrisy and human folly – the heartbeat of Nigerian comedy. The doctors' strike and Sanwo-Olu's investor pitch were mid-tier; I mentioned them briefly to keep the pace snappy, avoiding overload. The extraordinary teen story? I saved it for the end as an uplifting pivot, because in our news deluge, a positive yarn cuts through the cynicism. Topics like "Igbos in Lagos" made the cut for their emotional punch on unity, but I skipped unemployment stats or IMF replies – too policy-heavy, less laugh-inducing, and echoing past gigs on inflation or government woes.
+
+My comedic strategy was observational satire with a touch of absurdity, aiming to yarn like an uncle at a village gathering: start hot, twist through angles, end hopeful. Structure-wise, I flowed from local politics (Anambra, Bayelsa) to historical nods (Babangida), then international drama (Trump), domestic pains (strike, climate), economic hopes (refinery), tribal tensions, and youth inspiration. Transitions were organic, using phrases like "e get this other twist" to mimic rambling conversation, building momentum without abrupt jumps. I drew on Nigerian patterns – the rule of three in exaggerations (e.g., coup to civilian to squeeze) for rhythm, and setup-punchline via hypotheticals (World Cup referee, swimming passengers) – because they land hard in Pidgin's oral tradition. Balance of English? Mostly Pidgin for flavor (80%), slipping into standard for punchy asides, keeping it accessible yet street-smart – not too broken for diaspora folks, not too proper for the lads in Oshodi.
+
+Cultural authenticity was key; I wanted laughs that hit home without alienating. References like pepper soup heat, okada riders dodging bullets, or jollof fights evoke Naija life – they're effective because they're shared pains and joys, turning news into mirrors. Adapting events? Trump's threat became a "family meeting" farce, fitting our vibe of enduring big-man bluster with small-man wit. No Hollywood gloss; it's all Lagos grit, resonating because Nigerians laugh to survive, not escape.
+
+Creatively, I'm proudest of the Babangida punchline – "power na like hot akara, e burn if you no handle am well" – it works for its vivid sensory tie to everyday eats, blending respect with roast. The PDAPC party mash-up? Clever wordplay on fluidity, fresh without forcing. I considered but ditched the "One Nigeria as mirage" depth on lopsided projects; too divisive for comedy's light touch, risked preachiness. To dodge past repeats, I scanned my history – no more "like say" overload or Lagos rants – innovating with phrases like "eye dey wander" or "juju enter brain," varying exaggeration to targeted absurdity over blanket "everywhere" bits.
+
+Gospel integration was subtle, my signature evolution. I wove faith organically at transitions – Jesus healing strikes, Bible unity for Igbos – to counter despair without sermons. Strategy: tie spiritual grace to real fixes (e.g., refinery redemption), placing them post-roast for uplift, like salt after pepper. It feels natural because faith's woven into our psyche; it's not bolted on, but a thread in the yarn, reminding folks of hope amid wahala.
+
+From past scripts, I learned to trim fluff – those 1400-word marathons dragged – so this clocks tighter, evolving my voice to warmer, less shouty satire. Next time, I'd deepen youth angles earlier for balance, avoiding end-piling. This piece? It's me maturing: funnier in restraint, truer to the spirit that keeps us laughing. Onward, with grace.
+
+(Word count: 528)
